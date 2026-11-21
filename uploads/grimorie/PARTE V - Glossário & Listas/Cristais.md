@@ -1,1871 +1,824 @@
 ## ⛥ Cristais
-  
-### AFRICAN JADE
 
-  
+### Jade Africana *(African Jade)*
 
-HARMONY | GOOD LUCK | SOOTHING1
+> **Propriedades:** Harmonia · Boa Sorte · Calmante  
+> **Chakra:** Cardíaco | **Signos:** Peixes, Libra
 
-  
+Uma pedra de natureza gentil, calmante, acolhedora e revigorante. Ajuda a trazer harmonia para a mente, o corpo e o espírito. Considerada importante em parcerias comerciais e valorizada como um talismã de boa sorte.
 
-**CHAKRA:** HEART
+![Jade Africana](https://yourcrystal.com.au/cdn/shop/files/CRYSTAL_GLOSSARY_FILES_39688b61-ffa6-40c2-831f-dcf76fbb966f_340x340_crop_top@2x.png?v=1631668513)
 
-  
+---
 
-**ZODIAC:** PISCES, LIBRA
+### Amazonita *(Amazonite)*
 
-  
+> **Propriedades:** Paz · Esperança · Manifestação  
+> **Chakra:** Cardíaco, Laríngeo | **Signos:** Áries, Virgem, Leão
 
-A gentle natured stone; soothing, caring and uplifting. Helps to bring harmony to the mind, body and spirit. Considered important in business partnerships. A talisman of good luck.
+A pedra ideal para equilibrar os chakras e promover a cura energética. A amazonita acalma e cura questões emocionais ao aliviar medos e preocupações. É excelente para manifestar o amor universal e dissipar energias negativas, trazendo uma profunda sensação de paz, esperança e alegria.
 
-  
-  
+![Amazonita](https://yourcrystal.com.au/cdn/shop/files/CRYSTAL_GLOSSARY_FILES_1_340x340_crop_top@2x.png?v=1631668996)
 
-![](https://yourcrystal.com.au/cdn/shop/files/CRYSTAL_GLOSSARY_FILES_39688b61-ffa6-40c2-831f-dcf76fbb966f_340x340_crop_top@2x.png?v=1631668513)
+---
 
-  
+### Ametista *(Amethyst)*
 
-### AMAZONITE
+> **Propriedades:** Calmante · Proteção · Força de Vontade  
+> **Chakra:** Terceiro Olho, Coronário | **Signos:** Peixes, Virgem, Aquário, Capricórnio
 
-  
+A ametista é um calmante natural contra o estresse que suaviza as emoções, limpa energias negativas e cria um campo energético protetor. Excelente para oscilações de humor, irritabilidade, tristeza, luto ou raiva. Ajuda a equilibrar os altos e baixos emocionais enquanto incentiva a honestidade e o autocontrole, sendo uma grande aliada para superar vícios e fortalecer a força de vontade.
 
-PEACE | HOPE | MANIFESTATION
+![Ametista](https://yourcrystal.com.au/cdn/shop/files/AMETHYST_340x340_crop_top@2x.png?v=1625058055)
 
-  
+---
 
-**CHAKRA:** HEART, THROAT
+### Angelita *(Angelite)*
 
-  
+> **Propriedades:** Poder · Intuição · Calma  
+> **Chakra:** Terceiro Olho, Laríngeo, Coronário | **Signos:** Aquário, Gêmeos, Libra
 
-**ZODIAC:** ARIES, VIRGO, LEO
+A angelita traz a energia elevada da cura, do amor, do poder e da proteção. Acredita-se que usá-la produza um efeito calmante, facilitando a conexão com o Eu Superior, com os guias espirituais e com os anjos. É conhecida por apoiar no enfrentamento dos medos, na remoção de bloqueios energéticos e também como excelente pedra para facilitar viagens astrais.
 
-  
+![Angelita](https://yourcrystal.com.au/cdn/shop/files/ANGELITE_340x340_crop_top@2x.png?v=1625058096)
 
-The perfect stone for balancing chakras and energy healing. Amazonite soothes and heals emotional issues by alleviating fears and worry. A great stone for manifesting universal love and dispelling negative energy to bring you a wonderful sense of peace, hope and joy.
+---
 
-  
-  
+### Água-Marinha *(Aquamarine)*
 
-![](https://yourcrystal.com.au/cdn/shop/files/CRYSTAL_GLOSSARY_FILES_1_340x340_crop_top@2x.png?v=1631668996)
+> **Propriedades:** Calmante · Intuição · Coragem  
+> **Chakra:** Terceiro Olho, Laríngeo | **Signos:** Peixes, Aquário, Gêmeos, Libra
 
-  
+A água-marinha é calmante, suavizante e purificadora. Ótima para pessoas sensíveis, desperta maior tolerância em relação aos outros. Também clarifica a percepção intuitiva, aguça o intelecto e dissipa a confusão mental. Muito serena e maravilhosa para meditação, protege a aura e alinha os chakras. É altamente protetora durante a gravidez, resguardando mãe e filho contra danos ou ataques psíquicos.
 
-### AMETHYST
+![Água-Marinha](https://yourcrystal.com.au/cdn/shop/files/AQUAMARINE_340x340_crop_top@2x.png?v=1625121323)
 
-  
+---
 
-SOOTHING | PROTECTION | WILLPOWER
+### Ametista Aura *(Aura Amethyst)*
 
-  
+> **Propriedades:** Alta Vibração · Calmante · Purificação  
+> **Chakra:** Terceiro Olho, Coronário | **Signos:** Aquário, Áries
 
-**CHAKRA:** THIRD EYE, CROWN
+Um cristal extremamente calmante que abre o coração e a mente para a energia amorosa, a paz e a alegria. Aprimora habilidades psíquicas e libera bloqueios energéticos na aura e nos chakras. Cristal de alta vibração que purifica e harmoniza o ambiente, limpa a negatividade e eleva a frequência espiritual.
 
-  
+![Ametista Aura](https://yourcrystal.com.au/cdn/shop/files/AURA_AMETHYST_340x340_crop_top@2x.png?v=1633845465)
 
-**ZODIAC:** PISCES, VIRGO, AQUARIUS, CAPRICORN
+---
 
-  
+### Azurita *(Azurite)*
 
-Amethyst is a natural stress reliever that calms and soothes your emotions clearing negative energy and creating a protective energy field. Great for mood swings, irritability, sadness, grief or anger.  It helps to balance emotional highs and lows while encouraging honesty and self-control. Great for overcoming addictions and supporting willpower.
+> **Propriedades:** Memória · Criatividade · Sabedoria  
+> **Chakra:** Terceiro Olho, Coronário | **Signos:** Aquário, Capricórnio, Touro
 
-  
-  
+A azurita é uma pedra muito especial que limpa e ativa os chakras do terceiro olho e coronário, ampliando a criatividade e a visão interior. Permite compreender não apenas a si mesmo, mas também as verdadeiras motivações e intenções alheias. Excelente para escritórios ou estúdios, trazendo sabedoria interior, dignidade e maestria espiritual.
 
-![](https://yourcrystal.com.au/cdn/shop/files/AMETHYST_340x340_crop_top@2x.png?v=1625058055)
+![Azurita](https://yourcrystal.com.au/cdn/shop/files/AZURITE_bacf56f1-15f2-4ab0-aa51-051e97b0a418_340x340_crop_top@2x.png?v=1631828999)
 
-  
+---
 
-### ANGELITE
+### Obsidiana Negra *(Black Obsidian)*
 
-  
+> **Propriedades:** Purificação · Proteção · Aterramento  
+> **Chakra:** Básico (Raiz) | **Signos:** Escorpião, Peixes
 
-POWER | INTUITION | CALM
+Formada por vidro vulcânico, é uma pedra extremamente poderosa e protetora. A obsidiana negra protege e limpa o campo energético de qualquer desarmonia, emoção densa ou apego negativo. Também é uma pedra de forte aterramento, conectando profundamente à Terra.
 
-  
+![Obsidiana Negra](https://yourcrystal.com.au/cdn/shop/files/black_obsidian_853b5eb4-c98e-4d44-88aa-b30683e6ac8a_340x340_crop_top@2x.png?v=1631828972)
 
-**CHAKRA:** THIRD EYE, THROAT, CROWN
+---
 
-  
+### Turmalina Negra *(Black Tourmaline)*
 
-**ZODIAC:** AQUARIUS, GEMINI, LIBRA
+> **Propriedades:** Proteção · Aterramento · Força  
+> **Chakra:** Básico (Raiz), Sacral | **Signos:** Sagitário, Capricórnio, Libra
 
-  
+Uma poderosa pedra de proteção. A turmalina negra ajuda a manter o aterramento, proporcionando segurança, estabilidade e coragem para expressar a própria verdade. Limpa o corpo mental e emocional de pensamentos negativos, ansiedades e sentimentos de inadequação, resultando em força renovada e autoconfiança.
 
-Angelite bring the wonderful energy of healing, love, power and protection. Wearing angelite is believed to have a calming effect on you, thus providing the you with the ability to connect to your higher self, your spirit guides and angels. Angelite is known to support you in facing your fears and in removing energy blockages in your life. Also a great stone to facilitate astral travel.
+![Turmalina Negra](https://yourcrystal.com.au/cdn/shop/files/BLACK_TOURMALINE_340x340_crop_top@2x.png?v=1625121514)
 
-  
-  
+---
 
-![](https://yourcrystal.com.au/cdn/shop/files/ANGELITE_340x340_crop_top@2x.png?v=1625058096)
+### Heliotrópio / Pedra-de-Sangue *(Bloodstone)*
 
-  
+> **Propriedades:** Calmante · Proteção · Criatividade  
+> **Chakra:** Cardíaco | **Signos:** Leão, Áries
 
-### AQUAMARINE
+O heliotrópio é uma poderosa pedra de cura. Eleva a intuição e estimula a criatividade enquanto protege e aterra quem o utiliza. Limpa energias negativas do ambiente, revitaliza e favorece sonhos lúcidos. Acalma e revigora a mente, dissipa a confusão, melhora a tomada de decisões e reduz irritabilidade, agressividade e impaciência.
 
-  
+![Heliotrópio](https://yourcrystal.com.au/cdn/shop/files/BLOODSTONE_340x340_crop_top@2x.png?v=1625121552)
 
-CALMING | INTUITION | COURAGE   
+---
 
-  
+### Apatita Azul *(Blue Apatite)*
 
-**CHAKRA:** THIRD EYE, THROAT
+> **Propriedades:** Manifestação · Intuição · Comunicação  
+> **Chakra:** Terceiro Olho, Laríngeo | **Signos:** Gêmeos
 
-  
+A apatita azul é a pedra da manifestação, da comunicação e da transformação espiritual. Ativa capacidades psíquicas, estimula o terceiro olho e promove visão mais clara, expressão fluida e desenvolvimento espiritual. Ótima para falar em público, manifestar desejos e moderar o apetite.
 
-**ZODIAC:** PISCES, AQUARIUS, GEMINI, LIBRA
+![Apatita Azul](https://yourcrystal.com.au/cdn/shop/files/BLUE_APATITE_340x340_crop_top@2x.png?v=1625122001)
 
-  
+---
 
-Aquamarine is calming, soothing and cleansing. Great for sensitive people, it invokes a greater tolerance for others. Aquamarine also clarifies perception (intuition), sharpens the intellect and clears confusion. It is a very soothing stone, wonderful for meditation, shields the aura and aligning the chakras. It is highly protective during pregnancy, guarding both mother and child from harm or psychic attack. 
+### Celestita Azul *(Blue Celestite)*
 
-  
-  
+> **Propriedades:** Alta Vibração · Calmante · Purificação  
+> **Chakra:** Terceiro Olho, Coronário, Laríngeo | **Signos:** Gêmeos, Libra
 
-![](https://yourcrystal.com.au/cdn/shop/files/AQUAMARINE_340x340_crop_top@2x.png?v=1625121323)
+A celestita é uma pedra de vibração muito elevada, cuja energia pode ser sentida ao simples toque. Associada a seres celestiais, possui forte ligação com a energia divina e o contato com o reino angélico. Suas vibrações suaves irradiam calma para a aura e o corpo emocional, ajudando a arrefecer emoções intensas reprimidas no dia a dia. Excelente para promover paz interior e induzir descanso e sono reparador.
 
-  
+![Celestita Azul](https://yourcrystal.com.au/cdn/shop/files/blue_celestite_94ac5629-77ea-4334-b915-db75c6356a18_340x340_crop_top@2x.png?v=1631849320)
 
-### AURA AMETHYST
+---
 
-  
+### Calcedônia Azul *(Blue Chalcedony)*
 
-HIGH VIBRATION | CALMING | PURIFYING
+> **Propriedades:** Serenidade · Planos Superiores · Positividade  
+> **Chakra:** Laríngeo, Terceiro Olho | **Signos:** Gêmeos
 
-  
+Vibrações pacíficas e serenas que acalmam a aura. Auxilia na meditação e na conexão com planos superiores. Perfeita para cura interior, criatividade e mudança para uma mentalidade mais positiva.
 
-**CHAKRA:** THIRD EYE, CROWN
+![Calcedônia Azul](https://yourcrystal.com.au/cdn/shop/files/BLUE_CHALCEDONY_340x340_crop_top@2x.png?v=1631828997)
 
-  
+---
 
-**ZODIAC:** AQUARIUS, ARIES
+### Ágata Blue Lace *(Blue Lace Agate)*
 
-  
+> **Propriedades:** Paz · Alegria · Comunicação  
+> **Chakra:** Coronário, Laríngeo | **Signos:** Peixes
 
-An extremely calming crystal, it opens your heart and mind to loving energy, peace and joy. It enhances psychic abilities and releases energy blockages within the aura and chakras. A high vibration crystal that purifies and harmonizes your space and clears negativity and raises your frequency.
+A ágata blue lace é uma pedra de comunicação, calma e alegria. Auxilia quem tem dificuldade de ser ouvido ou precisa de força e confiança para compartilhar sua verdade, favorecendo a expressão verbal.
 
-  
-  
+![Ágata Blue Lace](https://yourcrystal.com.au/cdn/shop/files/CRYSTAL_GLOSSARY_FILES_1_5c173320-1fc4-49b0-b302-80f098520f3c_340x340_crop_top@2x.png?v=1631850971)
 
-![](https://yourcrystal.com.au/cdn/shop/files/AURA_AMETHYST_340x340_crop_top@2x.png?v=1633845465)
+---
 
-  
+### Olho-de-Tigre Azul / Olho-de-Falcão *(Blue Tiger's Eye)*
 
-### AZURITE
+> **Propriedades:** Fortuna · Foco · Amizades  
+> **Chakra:** Terceiro Olho | **Signos:** Capricórnio, Touro
 
-  
+Traz harmonia e equilíbrio aos relacionamentos. Permite manter o foco, buscar clareza e tomar decisões melhores ao limpar a mente. Atrai um fluxo constante de prosperidade para o lar ou para os negócios.
 
-MEMORY | CREATIVITY | WISDOM 
+![Olho-de-Tigre Azul](https://yourcrystal.com.au/cdn/shop/files/CRYSTAL_GLOSSARY_FILES-2_340x340_crop_top@2x.png?v=1668506192)
 
-  
+---
 
-**CHAKRA:** THIRD EYE, CROWN
+### Calcita Azul do Caribe *(Caribbean Blue Calcite)*
 
-  
+> **Propriedades:** Altas Vibrações · Intuição · Comunicação  
+> **Chakra:** Coronário, Terceiro Olho | **Signos:** Touro, Libra
 
-**ZODIAC:** AQUARIUS, CAPRICORN, TAURUS
+Uma pedra muito rara e de descoberta recente. Excelente para acalmar o corpo emocional e abrir a mente e o terceiro olho, estimulando o acesso a planos elevados. Mantida ao lado da cama, aprofunda a compreensão dos sonhos e atua como fonte adicional de energia para sonhos lúcidos e viagens astrais.
 
-  
+![Calcita Azul do Caribe](https://yourcrystal.com.au/cdn/shop/files/CARIBBEAN_BLUE_CALCITE_340x340_crop_top@2x.png?v=1626348666)
 
-Azurite is a very special stone, that cleanses and activates the third eye and crown chakras thus enhancing creativity and inner vision. It allows us to understand not only oneself, but the true motives and agendas of others. This crystal is great for the office or studio, bringing inner wisdom, dignity and spiritual mastery.
+---
 
-  
-  
+### Cornalina *(Carnelian)*
 
-![](https://yourcrystal.com.au/cdn/shop/files/AZURITE_bacf56f1-15f2-4ab0-aa51-051e97b0a418_340x340_crop_top@2x.png?v=1631828999)
+> **Propriedades:** Sucesso · Confiança · Vitalidade  
+> **Chakra:** Básico (Raiz), Sacral | **Signos:** Touro, Câncer, Leão, Virgem
 
-  
+Uma pedra quente, vibrante e revigorante que restaura a energia, a motivação e a criatividade. Excelente para elevar a autoconfiança e o empoderamento pessoal, a cornalina desperta o espírito combativo necessário para atravessar qualquer situação.
 
-### BLACK OBSIDIAN
+![Cornalina](https://yourcrystal.com.au/cdn/shop/files/CARNELIAN_340x340_crop_top@2x.png?v=1626349018)
 
-  
+---
 
-PURIFICATION |PROTECTION | GROUNDING
+### Charoíta *(Charoite)*
 
-  
+> **Propriedades:** Discernimento · Transformação · Sono  
+> **Chakra:** Terceiro Olho, Cardíaco | **Signos:** Escorpião, Sagitário
 
-**CHAKRA:** ROOT CHAKRA
+Conhecida como a "pedra da alma", fornece intensas energias de cura mental, emocional e física. Suas propriedades transformadoras atuam em todas as áreas da vida, trazendo clareza profunda e discernimento diante de confusão mental. Excelente contra insônia e terrores noturnos, dissipa os pensamentos que tiram o sono e promove relaxamento profundo.
 
-  
+![Charoíta](https://yourcrystal.com.au/cdn/shop/files/CHAROITE_340x340_crop_top@2x.png?v=1634027101)
 
-**ZODIAC:** SCORPIO, PISCES
+---
 
-  
+### Ametista Chevron *(Chevron Amethyst)*
 
-Made from volcanic glass this is a highly powerful and protective gemstone. Black Obsidian protects and cleanses you energetic field of any disharmony, emotions or negative attachments. It also is a very grounding stone, connecting you to earth.
+> **Propriedades:** Despertar · Crescimento · Calmante  
+> **Chakra:** Coronário, Terceiro Olho | **Signos:** Gêmeos, Libra, Aquário, Peixes
 
-  
-  
+A ametista chevron é uma combinação em faixas de ametista e quartzo leitoso branco. Reúne todas as propriedades da ametista — acalmar, suavizar e proteger — somadas a qualidades especiais para o crescimento pessoal e o despertar espiritual. Excelente peça para relaxamento, autodescoberta e estados elevados de consciência.
 
-![](https://yourcrystal.com.au/cdn/shop/files/black_obsidian_853b5eb4-c98e-4d44-88aa-b30683e6ac8a_340x340_crop_top@2x.png?v=1631828972)
+![Ametista Chevron](https://yourcrystal.com.au/cdn/shop/files/CHEVRON_AMETHYST_340x340_crop_top@2x.png?v=1626349639)
 
-  
+---
 
-### BLACK TOURMALINE
+### Crisocola *(Chrysocolla)*
 
-  
+> **Propriedades:** Calma · Limpeza · Reenergização  
+> **Chakra:** Terceiro Olho, Cardíaco | **Signos:** Sagitário, Gêmeos, Virgem
 
-PROTECTION | GROUNDING | STRENGTH
+Se você sente que está vivendo no piloto automático ou sonha com um recomeço mas ainda não encontrou motivação para agir, esta é sua aliada cristalina. A crisocola acalma, limpa e reenergiza todos os chakras. Dissolve a culpa, cura mágoas e amplia a capacidade de amar. Melhora a comunicação, abre a visão psíquica e incentiva o autoconhecimento, a motivação e o equilíbrio interior.
 
-  
+![Crisocola](https://yourcrystal.com.au/cdn/shop/files/CHRYSOCOLLA_04191517-a781-42a6-a1c1-d42eb6d8eecf_340x340_crop_top@2x.png?v=1628934605)
 
-**CHAKRA:** ROOT, SACRAL
+---
 
-  
+### Citrino *(Citrine)*
 
-**ZODIAC:** SAGITTARIUS, CAPRICORN, LIBRA
+> **Propriedades:** Sucesso · Força · Abundância  
+> **Chakra:** Sacral, Plexo Solar, Coronário | **Signos:** Peixes, Virgem, Aquário, Capricórnio
 
-  
+O citrino atrai riqueza, abundância, alegria e força. Esse pequeno raio de sol traz uma energia luminosa para a vida de diversas formas, oferecendo clareza, positividade e transformação alegre. Ajuda a descobrir a força e as habilidades interiores, desbloqueando o potencial da alma e atraindo prosperidade.
 
-A powerful stone for protection. Black Tourmaline helps one become grounded, feeling safe and secure and able to speak their truth. The stone also cleanses the mental and emotional body of negative thoughts, anxieties, and feelings of unworthiness; resulting in a renewed strength and self confidence.
+![Citrino](https://yourcrystal.com.au/cdn/shop/files/CITRINE_340x340_crop_top@2x.png?v=1626350039)
 
-  
-  
+---
 
-![](https://yourcrystal.com.au/cdn/shop/files/BLACK_TOURMALINE_340x340_crop_top@2x.png?v=1625121514)
+### Quartzo Cristal / Transparente *(Clear Quartz)*
 
-  
+> **Propriedades:** Cura · Limpeza · Criatividade  
+> **Chakra:** Coronário, Terceiro Olho | **Signos:** Todos
 
-### BLOODSTONE
+Conhecido como o "mestre curador" e reconhecido como a pedra de cura mais poderosa e versátil. O quartzo transparente amplifica a intuição e as habilidades psíquicas, além de focar, ampliar e transformar energias. Fortalece a aura, trazendo bem-estar, alegria e reenergização.
 
-  
+![Quartzo Transparente](https://yourcrystal.com.au/cdn/shop/files/CLEAR_QUARTZ_340x340_crop_top@2x.png?v=1626350136)
 
-CALMING | PROTECTION | CREATIVITY
+---
 
-  
+### Jaspe Dálmata *(Dalmatian Jasper)*
 
-**CHAKRA:** HEART
+> **Propriedades:** Alegria · Alinhamento · Pensamento Positivo  
+> **Chakra:** Sacral | **Signos:** Virgem
 
-  
+O jaspe dálmata traz uma energia de alegria infantil e leveza lúdica para a vida. Equilibra o Yin e o Yang e alinha os corpos físico, emocional e mental com o plano etérico. Auxilia na superação da depressão, de pesadelos e de padrões de pensamento negativo.
 
-**ZODIAC:** LEO, ARIES
+![Jaspe Dálmata](https://yourcrystal.com.au/cdn/shop/files/Dalmatian_Jasper_340x340_crop_top@2x.png?v=1628890680)
 
-  
+---
 
-Bloodstone is an a powerful healing stone. It heightens intuition and increases creativity, whilst protecting and grounding the wearer. Bloodstone clears negative environmental energy, revitalises and stimulates lucid dreaming. Bloodstone calms and revitalises the mind, dispels confusion and enhances decision-making. It also reduces irritability, aggressiveness and impatience.
+### Ágata Drusa *(Druzy Agate)*
 
-  
-  
+> **Propriedades:** Paz · Paciência · Amor  
+> **Chakra:** Laríngeo, Terceiro Olho | **Signos:** Gêmeos, Virgem
 
-![](https://yourcrystal.com.au/cdn/shop/files/BLOODSTONE_340x340_crop_top@2x.png?v=1625121552)
+Amplifica as propriedades naturais de autocura do corpo e fortalece o senso de merecimento e amor-próprio. Proporciona equilíbrio em momentos de desânimo, medo ou tristeza, além de impulsionar a imaginação e a criatividade.
 
-  
+![Ágata Drusa](https://yourcrystal.com.au/cdn/shop/files/CRYSTAL_GLOSSARY_FILES_9914507c-0d8b-47fd-bab7-ca7b43225496_340x340_crop_top@2x.png?v=1631829431)
 
-### BLUE APATITE
+---
 
-  
+### Ágata Flor *(Flower Agate)*
 
-MANIFESTATION | INTUITION | COMMUNICATION
+> **Propriedades:** Atenção Plena · Sensualidade · Esplendor  
+> **Chakra:** Cardíaco | **Signos:** Gêmeos, Libra, Capricórnio
 
-  
+A pedra dos sonhadores e de quem cultiva ambições e metas. A ágata flor (também chamada ágata flor-de-cerejeira) ajuda a manifestar desejos. Extremamente acolhedora, é perfeita para períodos dolorosos ou exaustivos, auxiliando a visualizar e conquistar um futuro mais luminoso sem medos.
 
-**CHAKRA:** THIRD EYE, THROAT
+![Ágata Flor](https://yourcrystal.com.au/cdn/shop/files/CHERRY_BLOSSOM_AGATE_340x340_crop_top@2x.png?v=1626349217)
 
-  
+---
 
-**ZODIAC:** GEMINI
+### Fuchsita *(Fuchsite)*
 
-  
+> **Propriedades:** Sono · Renovação · Vitalidade  
+> **Chakra:** Cardíaco | **Signos:** Touro, Libra
 
-Blue Apatite is the stone for manifestation, communication and spiritual transformation. It activates psychic abilities, stimulates the third eye and allows clearer vision, communication and spiritual development. Great for public speaking, manifesting your desires and suppressing hunger. 
+A fuchsita carrega as energias da juventude, vitalidade, alegria, riso e leveza. Excelente para a mente, o coração e a intuição, alivia o estresse e auxilia a alcançar estados mais profundos de meditação ou de sono.
 
-  
-  
+![Fuchsita](https://yourcrystal.com.au/cdn/shop/files/FUCHSITE_340x340_crop_top@2x.png?v=1626272923)
 
-![](https://yourcrystal.com.au/cdn/shop/files/BLUE_APATITE_340x340_crop_top@2x.png?v=1625122001)
+---
 
-  
+### Granada *(Garnet)*
 
-### BLUE CELESTITE
+> **Propriedades:** Paixão · Positividade · Sucesso  
+> **Chakra:** Básico (Raiz), Cardíaco | **Signos:** Capricórnio, Aquário, Sagitário
 
-  
+A granada é um cristal equilibrador que estimula o pensamento positivo e reacende o amor e a paixão quando faltam no campo energético. Favorece o pensamento elevado, o empoderamento pessoal, a segurança, a prosperidade, a abundância e a gratidão. Ativa e fortalece os instintos vitais, conferindo forte impulso para alcançar metas e sucesso.
 
-HIGH VIBRATION | CALMING | PURIFYING
+![Granada](https://yourcrystal.com.au/cdn/shop/files/Garnet_340x340_crop_top@2x.jpg?v=1630029284)
 
-  
+---
 
-**CHAKRA:** THIRD EYE, CROWN, THROAT
+### Pedra-do-Sol Sintética / Pedra-Estrela *(Goldstone)*
 
-  
+> **Propriedades:** Proteção · Cura · Realização  
+> **Chakra:** Sacral, Básico (Raiz) | **Signos:** Sagitário
 
-**ZODIAC:** GEMINI, LIBRA
+Pedra voltada ao desenvolvimento pessoal, ajuda a manter a estabilidade e a calma enquanto repele energias indesejadas. Conhecida como a pedra da ambição, fortalece a energia, a coragem e uma atitude positiva, aumentando a determinação, a confiança e a vitalidade. Sua variação azul (pedra-estrela azul) auxilia no equilíbrio financeiro e atrai sorte em questões materiais.
 
-  
+![Pedra-Estrela](https://yourcrystal.com.au/cdn/shop/files/goldstone_54e06d45-3fae-4376-8679-46bdea4f79d7_340x340_crop_top@2x.png?v=1634009223)
 
-Celestite is a very high vibrational stone that's energy can be felt with just a touch. Associated with celestial beings, Celestite is strongly connected to divine energy and contacting the angelic realm.  Celestite energies also provide calming and soothing vibrations that will radiate into your aura and emotional body. These energies will help “cool” fiery emotions that you keep hidden within yourself daily. Celestite is a calming, soothing stone, great for promoting inner peace and inducing rest and sleep. 
+---
 
-  
-  
+### Aventurina Verde *(Green Aventurine)*
 
-![](https://yourcrystal.com.au/cdn/shop/files/blue_celestite_94ac5629-77ea-4334-b915-db75c6356a18_340x340_crop_top@2x.png?v=1631849320)
+> **Propriedades:** Boa Sorte · Abundância · Sucesso  
+> **Chakra:** Cardíaco | **Signos:** Áries, Aquário
 
-  
+Pedra da boa sorte e da prosperidade, a aventurina verde inspira propósito, criatividade e iniciativa. Emana uma energia amorosa e serena alinhada ao chakra cardíaco, atuando muito bem em casos de ansiedade, traumas e crenças limitantes. Limpa velhos padrões do campo energético e desperta confiança renovada para manifestar alegria, sorte e abundância.
 
-### BLUE CHALCEDONY
+![Aventurina Verde](https://yourcrystal.com.au/cdn/shop/files/GREEEN_AVENTURINE_340x340_crop_top@2x.png?v=1626357529)
 
-  
+---
 
-SERENITY | HIGHER REALMS | POSITIVITY
+### Opala Verde *(Green Opal)*
 
-  
+> **Propriedades:** Propósito · Força · Abundância  
+> **Chakra:** Cardíaco, Plexo Solar | **Signos:** Câncer, Escorpião, Peixes
 
-**CHAKRA:** THROAT, THIRD EYE
+A pedra da mudança — traz clareza e senso de propósito. Cura e fortalece relacionamentos, amplia a coragem pessoal e a criatividade e estimula o fluxo da abundância.
 
-  
+![Opala Verde](https://yourcrystal.com.au/cdn/shop/files/green_opal_340x340_crop_top@2x.png?v=1632128662)
 
-**ZODIAC:** GEMINI
+---
 
-  
+### Hematita *(Hematite)*
 
-Peaceful serene vibrations to soothe your aura. Helps with meditation and connection to higher realms. Perfect for inner healing, creativity and a positive mindset shift
+> **Propriedades:** Aterramento · Foco · Proteção  
+> **Chakra:** Básico (Raiz), Sacral | **Signos:** Touro, Virgem, Libra
 
-  
-  
+A hematita possui uma energia de aterramento intensa que pode ser sentida apenas ao segurá-la. Fortalece a conexão com a Mãe Terra, promovendo segurança, coragem, resistência e vitalidade. Conhecida como "pedra da mente", estimula a concentração, o foco, a memória e o pensamento original, além de dissolver a negatividade e impedir que se absorvam energias negativas de terceiros.
 
-![](https://yourcrystal.com.au/cdn/shop/files/BLUE_CHALCEDONY_340x340_crop_top@2x.png?v=1631828997)
+![Hematita](https://yourcrystal.com.au/cdn/shop/files/Hematite_340x340_crop_top@2x.png?v=1628891052)
 
-  
+---
 
-### BLUE LACE AGATE
+### Calcita Mel *(Honey Calcite)*
 
-  
+> **Propriedades:** Poder Pessoal · Purificação · Intuição  
+> **Chakra:** Sacral, Terceiro Olho | **Signos:** Câncer
 
-PEACE | JOY | COMMUNICATION
+A calcita mel é um poderoso purificador energético que limpa o ambiente de toda negatividade e eleva a energia física e a motivação. Estimula a memória, a capacidade de aprendizado e a clareza mental, além de amplificar a energia de outras pedras próximas. Segurá-la durante o relaxamento e a respiração profunda favorece a conexão com habilidades psíquicas e planos sutis.
 
-  
+![Calcita Mel](https://yourcrystal.com.au/cdn/shop/files/HONEY_CALCITE_340x340_crop_top@2x.png?v=1626352259)
 
-**CHAKRA:** CROWN, THROAT
+---
 
-  
+### Howlita *(Howlite)*
 
-**ZODIAC:** PISCES
+> **Propriedades:** Expressão · Atenção Plena · Calma  
+> **Chakra:** Coronário | **Signos:** Gêmeos
 
-  
+A howlita fortalece a memória e desperta o desejo por conhecimento. Utilizada para criatividade, calma e comunicação por favorecer maior consciência. É uma pedra profundamente calmante que ensina paciência, ajuda a dissipar a raiva e emoções exacerbadas, melhora o sono e reduz a ansiedade e o estresse.
 
-Blue Lace Agate is a stone of communication, calm and joy. It helps those who have difficulty being heard by others, or who need strength or confidence to share their truths. It aids with verbal expression. 
+![Howlita](https://yourcrystal.com.au/cdn/shop/files/HOWLITE_ba4a18f3-93bd-466d-8545-c677456b38ed_340x340_crop_top@2x.png?v=1632125987)
 
-  
-  
+---
 
-![](https://yourcrystal.com.au/cdn/shop/files/CRYSTAL_GLOSSARY_FILES_1_5c173320-1fc4-49b0-b302-80f098520f3c_340x340_crop_top@2x.png?v=1631850971)
+### Iolita *(Iolite)*
 
-  
+> **Propriedades:** Motivação · Desintoxicação · Criatividade  
+> **Chakra:** Terceiro Olho | **Signos:** Libra, Touro, Sagitário
 
-### BLUE TIGERS EYE
+Excelente pedra para momentos de falta de criatividade e motivação, auxiliando em quadros de confusão, desorganização e distração. Cura e alinha corpo, mente e espírito, trazendo direção, orientação e esperança. Promove paz e tranquilidade ao ajudar a cortar hábitos prejudiciais, sendo uma grande aliada para retomar o próprio destino.
 
-  
+![Iolita](https://yourcrystal.com.au/cdn/shop/files/IOLITE_340x340_crop_top@2x.png?v=1626352501)
 
-FORTUNE | FOCUS | FRIENDSHIPS
+---
 
-  
+### Jaspe Kambaba *(Kambaba Jasper)*
 
-**CHAKRA:** THIRD EYE
+> **Propriedades:** Paz · Equilíbrio · Purificação  
+> **Chakra:** Cardíaco | **Signos:** Capricórnio, Câncer, Escorpião
 
-  
+O jaspe kambaba é uma pedra de paz e tranquilidade, impregnada pela energia verde nutritiva da natureza. Seus círculos escuros místicos e redemoinhos verde-profundos confortam, protegem e acalmam mentes inquietas, restaurando o equilíbrio do corpo e do espírito. Elimina energias negativas, estabiliza a aura e sua frequência constante amplia o foco, liberando pensamentos e sentimentos negativos.
 
-**ZODIAC:** CAPRICORN, TAURUS
+![Jaspe Kambaba](https://yourcrystal.com.au/cdn/shop/files/KAMBABA_JASPER_340x340_crop_top@2x.png?v=1626352720)
 
-  
+---
 
-Brings harmony and balance to relationships It allows you to focus, seek clarity, and make better decisions by clearing your mind. It brings a consistent flow of money into your home or business.
+### Kunzita *(Kunzite)*
 
-  
-  
+> **Propriedades:** Amor · Feminino Divino · Alegria  
+> **Chakra:** Cardíaco, Coronário | **Signos:** Áries, Leão, Libra, Escorpião
 
-![](https://yourcrystal.com.au/cdn/shop/files/CRYSTAL_GLOSSARY_FILES-2_340x340_crop_top@2x.png?v=1668506192)
+Por vezes chamada de pedra feminina, a kunzita traz alegria, amor e profunda conexão afetiva. Promove paz interior e amplia a capacidade de alcançar sabedoria e compreensão. Acredita-se que facilite permitir, receber e retribuir o amor, curando mágoas, acalmando os nervos, ativando o chakra cardíaco e alinhando o coronário.
 
-  
+![Kunzita](https://yourcrystal.com.au/cdn/shop/files/KUNZITE_340x340_crop_top@2x.png?v=1626352804)
 
-### CARIBBEAN BLUE CALCITE
+---
 
-  
+### Cianita *(Kyanite)*
 
-HIGHER VIBRATIONS | INTUITION | COMMUNICATION
+> **Propriedades:** Tranquilidade · Alta Vibração · Sintonia  
+> **Chakra:** Todos | **Signos:** Todos
 
-  
+A cianita é uma pedra de poder que não retém vibrações negativas e, portanto, nunca exige limpeza energética. Por sua altíssima vibração, é excelente para meditação e sintonização espiritual. Equilibra o yin-yang e dissolve bloqueios em todos os chakras, movendo a energia suavemente pelo corpo. Acalma o ser por inteiro, afastando raiva, frustração, confusão e estresse, estimula capacidades psíquicas, fortalece a perseverança, facilita o contato com guias espirituais e favorece a recordação de sonhos e sonhos curativos.
 
-**CHAKRA:** CROWN, THIRD EYE
+![Cianita](https://yourcrystal.com.au/cdn/shop/files/KYANITE_6330bf21-6f97-4865-995a-27ace2bf88f4_340x340_crop_top@2x.png?v=1632126092)
 
-  
+---
 
-**ZODIAC:** TAURUS, LIBRA
+### Labradorita *(Labradorite)*
 
-  
+> **Propriedades:** Proteção · Transformação · Intuição  
+> **Chakra:** Cardíaco, Terceiro Olho | **Signos:** Escorpião, Leão, Sagitário
 
-A very rare and limited stone, Caribbean Blue Calcite has only recently been discovered. A great stone for soothing the emotional body and opening the mind and third eye. It stimulates ones access to the greater realms. Keep this generator by your bedside for an enhanced perspective of your dreams, as well as an additional power source to aid in lucid dreaming and astral travel
+A labradorita purifica a energia e desvia influências indesejadas, inseguranças e medos. Poderosa aliada em processos de mudança, aguça os instintos, eleva a consciência e fortalece as habilidades psíquicas.
 
-  
-  
+![Labradorita](https://yourcrystal.com.au/cdn/shop/files/LABRADORITE_340x340_crop_top@2x.png?v=1626353020)
 
-![](https://yourcrystal.com.au/cdn/shop/files/CARIBBEAN_BLUE_CALCITE_340x340_crop_top@2x.png?v=1626348666)
+---
 
-  
+### Lápis-Lazúli *(Lapis Lazuli)*
 
-### CARNELIAN
+> **Propriedades:** Poder · Conhecimento · Proteção  
+> **Chakra:** Laríngeo, Coronário, Terceiro Olho | **Signos:** Virgem, Touro
 
-  
+Universalmente conhecido pelo poder, sabedoria e verdade. Incentiva o autoconhecimento, a autoexpressão e a verdade interior. Estimula clareza e criatividade enquanto protege contra ataques psíquicos, trazendo sensação renovada de força, lucidez e autoconfiança.
 
-SUCCESS | CONFIDENCE | VITALITY
+![Lápis-Lazúli](https://yourcrystal.com.au/cdn/shop/files/LAPIS_LAZULI_340x340_crop_top@2x.png?v=1626353216)
 
-  
+---
 
-**CHAKRA:** ROOT, SACRAL
+### Lepidolita *(Lepidolite)*
 
-  
+> **Propriedades:** Transição · Consciência · Meditação  
+> **Chakra:** Terceiro Olho, Coronário | **Signos:** Libra
 
-**ZODIAC:** TAURUS, CANCER, LEO, VIRGO
+A pedra da transição. A lepidolita auxilia na liberação e reorganização de antigos padrões comportamentais, conduzindo mudanças de forma suave. Promove profunda cura emocional, acalmando e reduzindo o estresse e a depressão.
 
-  
+![Lepidolita](https://yourcrystal.com.au/cdn/shop/files/LEPIDOLITE_340x340_crop_top@2x.png?v=1626353598)
 
-A warm, vibrant and uplifting stone, Carnelian restores energy, motivation and creativity. Great for boosting your self confidence, and empowering yourself;  Carnelian gives you that fighting spirit to get you through any situation.
+---
 
-  
-  
+### Malaquita *(Malachite)*
 
-![](https://yourcrystal.com.au/cdn/shop/files/CARNELIAN_340x340_crop_top@2x.png?v=1626349018)
+> **Propriedades:** Transformação · Confiança · Proteção  
+> **Chakra:** Cardíaco, Laríngeo | **Signos:** Libra, Escorpião, Capricórnio
 
-  
+A pedra da transformação — encoraja mudanças profundas. Absorve energias negativas do corpo e do ambiente, abre o coração para o amor incondicional e incentiva a coragem para assumir riscos, liderança e renovação.
 
-### CHAROITE
+![Malaquita](https://yourcrystal.com.au/cdn/shop/files/MALACHITE_340x340_crop_top@2x.png?v=1626353691)
 
-  
+---
 
-INSIGHT | TRANSFORMATION | SLEEP
+### Malacola *(Malacholla)*
 
-  
+> **Propriedades:** Transformação · Cura · Empoderamento  
+> **Chakra:** Cardíaco, Laríngeo | **Signos:** Touro, Escorpião
 
-**CHAKRA:** THIRD EYE, HEART
+Combinação poderosa de malaquita e crisocola, traz cura profunda, equilíbrio emocional e crescimento pessoal. Enquanto a malaquita impulsiona a transformação e revela o que bloqueia o progresso, a crisocola oferece uma energia suave que ajuda a aceitar essa mudança. Estabiliza e acalma emoções, amplia a empatia e o amor, incentiva a quebra de padrões tóxicos e cura cicatrizes emocionais.
 
-  
+![Malacola](https://yourcrystal.com.au/cdn/shop/files/MALACHOLLA_340x340_crop_top@2x.png?v=1632128923)
 
-**ZODIAC:** SCORPIO, SAGITTARIUS 
+---
 
-  
+### Calcita Mangano *(Mangano Calcite)*
 
-Known as the "soul stone" it provides strong mental, emotional and physical healing energies. Its transformative properties are effective in all areas of your life. Furthermore it provides deep clarity and insight to any confusion or clutter in the mind. Great for sleep, insomnia, night terrors, it dissipates all the thoughts that keep you up at night, and provides total relaxation.
+> **Propriedades:** Perdão · Paz Interior · Alegria  
+> **Chakra:** Coronário, Cardíaco | **Signos:** Touro, Libra, Câncer
 
-  
-  
+A calcita rosa, também conhecida como calcita mangano, promove paz interior, compaixão, amor puro, alegria e vibrações de autocura. Excelente para curar questões não resolvidas do coração, acolhe pessoas empáticas com conforto e leveza e favorece o perdão a si mesmo e aos outros.
 
-![](https://yourcrystal.com.au/cdn/shop/files/CHAROITE_340x340_crop_top@2x.png?v=1634027101)
+![Calcita Mangano](https://yourcrystal.com.au/cdn/shop/files/MANGANO_CALCITE_340x340_crop_top@2x.png?v=1632124636)
 
-  
+---
 
-### CHEVRON AMETHYST
+### Quartzo Leitoso *(Milky Quartz)*
 
-  
+> **Propriedades:** Harmonia · Proteção · Vitalidade  
+> **Chakra:** Coronário | **Signos:** Todos
 
-AWAKENING | GROWTH | CALMING
+Ajuda a eliminar energias negativas e o cansaço físico, devolvendo vitalidade. O quartzo leitoso oferece apoio para assimilar as lições da vida e libertar-se do excesso de responsabilidades e limitações, além de estimular o tato, a cooperação e o discernimento antes de falar.
 
-  
+![Quartzo Leitoso](https://yourcrystal.com.au/cdn/shop/files/MILKY_QUARTZ_d099ea08-18ca-4e0b-bbd8-0a0869e2bdc2_340x340_crop_top@2x.png?v=1632126989)
 
-**CHAKRA:** CROWN, THIRD EYE
+---
 
-  
+### Pedra-da-Lua *(Moonstone)*
 
-**ZODIAC:** GEMINI, LIBRA, AQUARIUS, PISCES
+> **Propriedades:** Força · Fortuna · Equilíbrio  
+> **Chakra:** Terceiro Olho, Plexo Solar | **Signos:** Libra, Peixes, Câncer
 
-  
+Cristal de alta vibração, excelente para alinhamento e equilíbrio, sintonizando frequências elevadas. Pedra dos "novos começos", sustenta o crescimento e a força interior enquanto acalma emoções e estresse. Aguça a intuição, desperta inspiração e atrai sucesso e boa fortuna no amor e nos negócios. Ligada à energia lunar e aos ciclos, é poderosa para quem busca conectar-se à energia feminina ou da Deusa.
 
-Chevron Amethyst is a banded combination of amethyst and white milky quartz. This stone has all the properties of amethyst - soothing, calming, protecting; plus a few special features that make it excellent for personal growth and spiritual awakening. This is a great peace for relaxation, self-discovery and higher states of consciousness
+![Pedra-da-Lua](https://yourcrystal.com.au/cdn/shop/files/MOONSTONE_340x340_crop_top@2x.png?v=1626353997)
 
-  
-  
+---
 
-![](https://yourcrystal.com.au/cdn/shop/files/CHEVRON_AMETHYST_340x340_crop_top@2x.png?v=1626349639)
+### Ágata Musgo *(Moss Agate)*
 
-  
+> **Propriedades:** Tranquilidade · Riqueza · Autoestima  
+> **Chakra:** Cardíaco | **Signos:** Virgem
 
-### CHRYSOCOLLA
+Pedra de profundo significado e propósito, também chamada de pedra dos recomeços: renova a alma e inspira novos ideais após períodos de estagnação. Reduz a sensibilidade a mudanças climáticas e poluentes ambientais, atrai abundância, fortalece a autoestima e facilita o convívio social, promovendo autoexpressão, comunicação e equilíbrio emocional.
 
-  
+![Ágata Musgo](https://yourcrystal.com.au/cdn/shop/files/MOSS_AGATE_4bad5a7a-20e5-40e7-b0ed-07fbb1635c45_340x340_crop_top@2x.png?v=1626354217)
 
-CALM | CLEANSE | REENERGIZE
+---
 
-  
+### Jaspe Oceânico *(Ocean Jasper)*
 
-**CHAKRA:** THIRD EYE, HEART
+> **Propriedades:** Autocuidado · Acolhimento · Otimismo  
+> **Chakra:** Cardíaco, Plexo Solar | **Signos:** Capricórnio, Aquário, Sagitário
 
-  
+Se você tem deixado suas necessidades de lado e negligenciado o próprio cuidado, o jaspe oceânico ajuda a recolocar-se como prioridade. Sua energia gentil e acolhedora convida a desacelerar e reservar momentos para si, fortalecendo a alegria, o otimismo e as boas vibrações.
 
-**ZODIAC:** SAGITTARIUS, GEMINI, VIRGO
+![Jaspe Oceânico](https://yourcrystal.com.au/cdn/shop/files/Ocean_Jasper_340x340_crop_top@2x.png?v=1628891271)
 
-  
+---
 
-"Do you feel as though you're living on autopilot? Have you been dreaming up a fresh start in an area of your life, but haven’t found the motivation to actually make it happen? If you're ready for a change, then this is your crystal ally. Chrysocolla calms, cleanses and re-energizes all the chakras. It draws out guilt, heals heartache and increases the capacity to love. It improves communication and opens psychic vision. Encourages self-awareness, motivation and inner balance."
+### Calcita Laranja *(Orange Calcite)*
 
-  
-  
+> **Propriedades:** Limpeza · Criatividade · Positividade  
+> **Chakra:** Básico (Raiz), Sacral | **Signos:** Câncer, Leão
 
-![](https://yourcrystal.com.au/cdn/shop/files/CHRYSOCOLLA_04191517-a781-42a6-a1c1-d42eb6d8eecf_340x340_crop_top@2x.png?v=1628934605)
+A calcita laranja ajuda a integrar o plano espiritual ao corpo físico, estimula a criatividade e auxilia no trabalho com questões emocionais. Energiza e purifica os chakras inferiores, atuando de forma especial no chakra sacral para fortalecer a vontade e dissipar estados depressivos.
 
-  
+![Calcita Laranja](https://yourcrystal.com.au/cdn/shop/files/CRYSTAL_GLOSSARY_FILES_5_340x340_crop_top@2x.png?v=1632124347)
 
-### CITRINE
+---
 
-  
+### Ametista Rosa *(Pink Amethyst)*
 
-SUCCESS | STRENGTH | ABUNDANCE
+> **Propriedades:** Aceitação · Cura · Romance  
+> **Chakra:** Cardíaco, Terceiro Olho, Coronário | **Signos:** Peixes, Virgem, Aquário
 
-  
+Cristal gentil e reconfortante que abre o chakra cardíaco e favorece a aceitação de si e dos outros sem julgamentos. Incentiva o amor, a cura emocional e uma percepção intuitiva profunda. Como variedade de quartzo, possui propriedades purificadoras que absorvem energias negativas, transmutando-as e devolvendo harmonia ao ambiente.
 
-**CHAKRA:** SACRAL, SOLAR PLEXUS, CROWN
+![Ametista Rosa](https://yourcrystal.com.au/cdn/shop/files/PINK_AMETHYST_340x340_crop_top@2x.png?v=1633822602)
 
-  
+---
 
-**ZODIAC:** PISCES, VIRGO, AQUARIUS, CAPRICORN
+### Aragonita Rosa *(Pink Aragonite)*
 
-  
+> **Propriedades:** Aterramento · Paciência · Paz  
+> **Chakra:** Básico (Raiz), Cardíaco | **Signos:** Capricórnio, Aquário, Sagitário
 
-Citrine attracts wealth, abundance, joy and strength. This little ray of sunshine brings a bright energy to your life in so many ways. Citrine provides clarity, positivity and joyous transformation. Find your inner strength and abilities, unlock your soul's potential and attract prosperity. 
+Com sua capacidade de centrar e aterrar as energias físicas, a aragonita rosa é muito útil em períodos de estresse. Ensina paciência e aceitação, conecta-se ao centro cardíaco e atenua a hipersensibilidade, sendo indicada para quem se cobra demais. Terapeutas beneficiam-se de segurá-la antes de atendimentos para centrar a energia e silenciar preocupações cotidianas.
 
-  
-  
+![Aragonita Rosa](https://yourcrystal.com.au/cdn/shop/files/PINK_ARAGONITE_c08e3317-2a6b-46a6-9f3e-0f9c004cc373_340x340_crop_top@2x.png?v=1632124779)
 
-![](https://yourcrystal.com.au/cdn/shop/files/CITRINE_340x340_crop_top@2x.png?v=1626350039)
+---
 
-  
+### Opala Rosa *(Pink Opal)*
 
-### CLEAR QUARTZ
+> **Propriedades:** Renovação · Sensibilidade · Aceitação  
+> **Chakra:** Cardíaco | **Signos:** Câncer, Peixes, Escorpião
 
-  
+Grande curadora de feridas emocionais, a opala rosa nutre a alma e preenche o campo energético com esperança, paz e tranquilidade. Ajuda a liberar traumas passados, preocupação excessiva, ansiedade e medo, trazendo centramento, calma e estabilidade.
 
-HEALING | CLEARING | CREATIVITY  
+![Opala Rosa](https://yourcrystal.com.au/cdn/shop/files/PINK_OPAL_340x340_crop_top@2x.png?v=1626354821)
 
-  
+---
 
-**CHAKRA:** CROWN, THIRD EYE
+### Turmalina Rosa / Rubelita *(Pink Tourmaline)*
 
-  
+> **Propriedades:** Amor · Cura · Paz Interior  
+> **Chakra:** Cardíaco | **Signos:** Libra
 
-**ZODIAC:** ALL
+A turmalina rosa, também conhecida como rubelita, irradia determinação, compromisso e cuidado. Excelente contra a ansiedade, sua tonalidade serena acalma raiva, dor e ressentimento, favorecendo a meditação e a reflexão. Associada ao amor renovado e a novos vínculos, nutre tanto o amor pelos outros quanto o amor-próprio, o autocuidado e a compaixão.
 
-  
+![Turmalina Rosa](https://yourcrystal.com.au/cdn/shop/files/CRYSTAL_GLOSSARY_FILES_1_8f04f099-79c0-46ba-9470-135f8b559320_340x340_crop_top@2x.png?v=1631829667)
 
-Known as the master healer and recognised as the most powerful and versatile healing stone. Clear Quartz is said to increase intuition and psychic abilities, and to amplify, focus and transform energy. Clear quartz strengthens your aura, helping you feel better, more happy and re-energised.
+---
 
-  
-  
+### Calcita Pistache *(Pistachio Calcite)*
 
-![](https://yourcrystal.com.au/cdn/shop/files/CLEAR_QUARTZ_340x340_crop_top@2x.png?v=1626350136)
+> **Propriedades:** Compaixão · Mudança · Coração  
+> **Chakra:** Cardíaco, Plexo Solar | **Signos:** Touro, Peixes
 
-  
+A vibração verde-suave da calcita pistache abre o chakra cardíaco para receber o amor do plano espiritual. Incentiva a tolerância, a compaixão e a compreensão. Emocionalmente, ajuda a mente a processar grandes transformações da vida, inclusive mudanças bruscas ou inicialmente indesejadas.
 
-### DALMATIAN JASPER
+![Calcita Pistache](https://yourcrystal.com.au/cdn/shop/files/CRYSTAL_GLOSSARY_FILES_340x340_crop_top@2x.png?v=1628891893)
 
-  
+---
 
-JOY | ALIGNMENT |POSITIVE THINKING
+### Prehnita *(Prehnite)*
 
-  
+> **Propriedades:** Verdade · Cura · Amor  
+> **Chakra:** Cardíaco, Plexo Solar | **Signos:** Libra, Áries
 
-**CHAKRA:** SACRAL
+A pedra do amor incondicional e grande aliada da cura. A prehnita acalma e protege o ambiente, sintonizando com a harmonia da natureza. Perfeita para atenção plena, meditação e conexão com o Eu Superior, fortalecendo a intuição e a visualização.
 
-  
+![Prehnita](https://yourcrystal.com.au/cdn/shop/files/PREHNITE_340x340_crop_top@2x.png?v=1626355135)
 
-**ZODIAC:** VIRGO
+---
 
-  
+### Pirita *(Pyrite)*
 
-Dalmatian Jasper brings an energy of childlike joy and a sense of playfulness into your life. It balances Yin and Yang and aligns the Physical, Emotional and Mental bodies with the etheric realm. It is helpful in overcoming depression, nightmares and negative thinking.
+> **Propriedades:** Confiança · Abundância · Aterramento  
+> **Chakra:** Todos | **Signos:** Todos
 
-  
-  
+A pirita é a pedra da ação, da vitalidade e da vontade. Inspira confiança e persistência, extraindo energia da Terra e atuando como escudo protetor. Cristal poderoso para manifestação, especialmente de riqueza, abundância e prosperidade.
 
-![](https://yourcrystal.com.au/cdn/shop/files/Dalmatian_Jasper_340x340_crop_top@2x.png?v=1628890680)
+![Pirita](https://yourcrystal.com.au/cdn/shop/files/PYRITE_340x340_crop_top@2x.png?v=1626355218)
 
-  
+---
 
-### DRUZY AGATE
+### Fluorita Arco-Íris *(Rainbow Fluorite)*
 
-  
+> **Propriedades:** Verdade · Consciência · Intelecto  
+> **Chakra:** Cardíaco, Laríngeo, Terceiro Olho | **Signos:** Capricórnio, Peixes
 
-PEACE | PATIENCE | LOVE
+A fluorita limpa e estabiliza a aura, absorvendo e neutralizando energias negativas e estresse. Excelente auxiliar nos estudos, amplia a concentração, a autoconfiança e a tomada de decisões. Estimula a positividade, equilibra as energias e melhora a coordenação física e mental.
 
-  
+![Fluorita Arco-Íris](https://yourcrystal.com.au/cdn/shop/files/RAINBOW_FLUORITE_340x340_crop_top@2x.png?v=1628892011)
 
-**CHAKRA:** GEMINI, VIRGO
+---
 
-  
+### Jaspe Vermelho *(Red Jasper)*
 
-**ZODIAC:** THROAT, THIRD EYE
+> **Propriedades:** Força · Poder · Confiança  
+> **Chakra:** Sacral, Básico (Raiz), Plexo Solar | **Signos:** Sagitário, Capricórnio, Libra
 
-  
+O jaspe vermelho é uma pedra de empoderamento que confere força, resistência e coragem. Cristal muito acolhedor para períodos de dúvida, preocupação ou turbulência emocional, mantendo o aterramento, a confiança e o vigor necessários para atravessar momentos difíceis.
 
-Amplifies the body's natural healing properties and heightens feeling of worthiness and self-love Provides balance when you're feeling down, fearful or depressed Druzy Agate will boost your imagination and creativity
+![Jaspe Vermelho](https://yourcrystal.com.au/cdn/shop/files/RED_JASPER_340x340_crop_top@2x.png?v=1628892201)
 
-  
-  
+---
 
-![](https://yourcrystal.com.au/cdn/shop/files/CRYSTAL_GLOSSARY_FILES_9914507c-0d8b-47fd-bab7-ca7b43225496_340x340_crop_top@2x.png?v=1631829431)
+### Olho-de-Tigre Vermelho / Olho-de-Boi *(Red Tiger's Eye)*
 
-  
+> **Propriedades:** Proteção · Sucesso · Cura  
+> **Chakra:** Básico (Raiz) | **Signos:** Capricórnio, Peixes
 
-### FLOWER AGATE
+Pedra altamente estimulante que promove energia, impulso e motivação. Conhecida por elevar a autoestima e a confiança, fortalece a coragem enquanto estabiliza e aterra o campo energético. Ideal para equilibrar paixão e praticidade, oferecendo empoderamento e firmeza emocional.
 
-  
+![Olho-de-Tigre Vermelho](https://yourcrystal.com.au/cdn/shop/files/RED_TIGERS_EYE_340x340_crop_top@2x.jpg?v=1633823084)
 
-MINDFULNESS | SENSUALITY | SPLENDOUR
+---
 
-  
+### Rodocrosita *(Rhodochrosite)*
 
-**CHAKRA:** HEART
+> **Propriedades:** Paixão · Cura · Empatia  
+> **Chakra:** Cardíaco, Básico (Raiz) | **Signos:** Leão, Escorpião
 
-  
+A rodocrosita fortalece a autoconfiança e traz senso de equilíbrio para a vida. Permite encarar questões do passado, acolhe a criança interior e é uma bela pedra para atrair amor e romance.
 
-**ZODIAC:** GEMINI, LIBRA, CAPRICORN
+![Rodocrosita](https://yourcrystal.com.au/cdn/shop/files/RHODOCHROSITE_20934e6f-e2b2-4af9-985a-5fa670aa641d_340x340_crop_top@2x.png?v=1631829758)
 
-  
+---
 
-The stone for dreamers and those with ambitions and goals, Cherry Blossom Agate helps to manifest your desires. An extremely soothing stone, perfect for those painful or exhausting periods in life. This stone assists you in visualising and achieving a brighter future without fears.
+### Rodonita *(Rhodonite)*
 
-  
-  
+> **Propriedades:** Cura · Perdão · Amor  
+> **Chakra:** Cardíaco | **Signos:** Touro
 
-![](https://yourcrystal.com.au/cdn/shop/files/CHERRY_BLOSSOM_AGATE_340x340_crop_top@2x.png?v=1626349217)
+Conhecida como a pedra suprema do resgate emocional, a rodonita carrega uma vibração curativa poderosa que auxilia em conflitos de relacionamento. Traz cura emocional, perdão e compaixão, ajuda a liberar medos e revela os dons pessoais, ancorando o chakra cardíaco no amor e na paz.
 
-  
+![Rodonita](https://yourcrystal.com.au/cdn/shop/files/RHODONITE_340x340_crop_top@2x.png?v=1626355619)
 
-### FUCHSITE
+---
 
-  
+### Quartzo Rosa *(Rose Quartz)*
 
-SLEEP | RENEWAL | VITALITY
+> **Propriedades:** Amor · Harmonia · Calma  
+> **Chakra:** Cardíaco | **Signos:** Libra, Touro
 
-  
+A pedra do amor universal. O quartzo rosa abre o coração e restaura a paz e a harmonia em todos os tipos de relacionamento. Traz gentileza, perdão e tolerância, dissipando raiva, ciúme, ressentimento e antigas emoções negativas.
 
-**CHAKRA:** HEART
+![Quartzo Rosa](https://yourcrystal.com.au/cdn/shop/files/CRYSTAL_GLOSSARY_FILES_2_76e32662-37f6-4702-bfc5-d4e708d34ec0_340x340_crop_top@2x.png?v=1631829840)
 
-  
+---
 
-**ZODIAC:** TAURUS, LIBRA
+### Rubi em Fuchsita *(Ruby Fuchsite)*
 
-  
+> **Propriedades:** Consciência · Transformação · Força  
+> **Chakra:** Básico (Raiz), Terceiro Olho, Cardíaco | **Signos:** Câncer, Leão, Escorpião
 
-Fuchsite carries the energies of youth, vitality, joy, laughter and playfulness. An excellent stone for you mind, heart and intuition - it can relieve stress and help you reach a deeper meditative or sleep state.
+As energias combinadas do rubi e da fuchsita criam uma vibração nutritiva que sustenta a cura do corpo emocional, acalmando o sofrimento, a angústia e a mente. O rubi traz força, alegria, coragem e confiança para realizar mudanças; juntos, ampliam a capacidade de conectar-se ao plano espiritual e receber mensagens durante a meditação.
 
-  
-  
+![Rubi em Fuchsita](https://yourcrystal.com.au/cdn/shop/files/RUBY_FUCHSITE_340x340_crop_top@2x.png?v=1631829970)
 
-![](https://yourcrystal.com.au/cdn/shop/files/FUCHSITE_340x340_crop_top@2x.png?v=1626272923)
+---
 
-  
+### Rubi em Cianita *(Ruby Kyanite)*
 
-### GARNET
+> **Propriedades:** Sonhos · Manifestação · Conexão  
+> **Chakra:** Terceiro Olho, Coronário | **Signos:** Áries, Leão, Libra, Escorpião
 
-  
+O rubi em cianita oferece proteção e força para jornadas xamânicas e viagens astrais, ajudando a manter uma conexão firme com o corpo físico enquanto dá vigor ao espírito para explorar planos distantes. Potencializa sonhos lúcidos, recordação onírica e o poder de manifestação.
 
-PASSION | POSITIVITY | SUCCESS
+![Rubi em Cianita](https://yourcrystal.com.au/cdn/shop/files/RUBY_KYANITE_cb762c52-6e6a-4bf9-8ee1-1e7975c54b9b_340x340_crop_top@2x.png?v=1632127576)
 
-  
+---
 
-**CHAKRA:** ROOT, HEART CHAKRA
+### Rubi em Zoisita *(Ruby Zoisite)*
 
-  
+> **Propriedades:** Conexão · Alegria · Abundância  
+> **Chakra:** Cardíaco, Básico (Raiz), Coronário | **Signos:** Aquário, Áries
 
-**ZODIAC:** CAPRICORN, AQUARIUS, SAGITTARIUS
+O rubi em zoisita oferece a energia da felicidade, da gratidão, da abundância, da vitalidade e do crescimento. Estimula o coração e abre para o amor divino, auxiliando em momentos de luto, raiva, desespero e desânimo.
 
-  
+![Rubi em Zoisita](https://yourcrystal.com.au/cdn/shop/files/RUBY_ZOISITE_34073517-c900-4d68-a7dc-16f92c060f00_340x340_crop_top@2x.png?v=1631830207)
 
-Garnet is a balancing crystal - bringing positive thinking, and inspiring love / passion if it's lacking in your energy field. Supportive of higher thinking and self empowerment, garnet is a great stone for personal safety, prosperity, abundance and gratitude. Garnet activates and strengthens the survival instincts giving the holder of this stone a strong drive for success and achieving their goals.  
+---
 
-  
-  
+### Selenita *(Selenite)*
 
-![](https://yourcrystal.com.au/cdn/shop/files/Garnet_340x340_crop_top@2x.jpg?v=1630029284)
+> **Propriedades:** Purificação · Recarga · Liberação  
+> **Chakra:** Coronário, Terceiro Olho | **Signos:** Gêmeos, Câncer
 
-  
+A vibração pura da selenita proporciona clareza mental e maior compreensão da vida. Inspira paz e calma e forma uma aura de proteção contra influências externas. Ajuda a alcançar novos estados de consciência, dissolver rapidamente bloqueios emocionais e purificar o campo energético. Também limpa outros cristais e impregna o ambiente de luz branca pura: basta posicionar outro cristal sobre ou ao lado da selenita por cerca de 15 minutos para uma limpeza rápida; deixado por mais tempo, a selenita amplifica e irradia a energia daquele mineral pelo espaço.
 
-### GOLDSTONE
+![Selenita](https://yourcrystal.com.au/cdn/shop/files/SELENITE_ddf63f40-c3ca-4c45-ad5d-9cdf6f8a4d2b_340x340_crop_top@2x.png?v=1631833040)
 
-  
+---
 
-PROTECTION | HEALING | REALISATION
+### Citrino Fumê *(Smokey Citrine)*
 
-  
+> **Propriedades:** Abundância · Manifestação · Crescimento Positivo  
+> **Chakra:** Básico (Raiz) | **Signos:** Escorpião, Leão, Libra
 
-**CHAKRA:** SACRAL, ROOT
+O cristal da abundância e das mudanças positivas. Remove medos, crenças limitantes e bloqueios antigos, ancora a energia vital (*kundalini*), potencializa a manifestação e transmuta negatividade em transformação construtiva.
 
-  
+![Citrino Fumê](https://yourcrystal.com.au/cdn/shop/files/SMOKEY_CITRINE_340x340_crop_top@2x.png?v=1632129507)
 
-**ZODIAC:** SAGITTARIUS
+---
 
-  
+### Quartzo Fumê *(Smokey Quartz)*
 
-A stone for personal development, goldstone helps you remain stable and calm while deflecting unwanted energies. Goldstone is said to be the stone of ambition. It builds energy, courage and a positive attitude. Increases drive and confidence. A gently uplifting stone, Goldstone promotes vitality. Blue Goldstone can help you find balance financially and give you more luck when it comes to money issues in general."
+> **Propriedades:** Aterramento · Proteção · Equilíbrio  
+> **Chakra:** Básico (Raiz), Plexo Solar | **Signos:** Escorpião, Sagitário, Capricórnio
 
-  
-  
+Pedra protetora que alivia luto, desespero, depressão e outras emoções densas. Ótima para liberar estresse, tensão e ansiedade enquanto eleva o humor e equilibra as energias sexuais. Traz aterramento e serenidade em momentos de incerteza ou preocupação.
 
-![](https://yourcrystal.com.au/cdn/shop/files/goldstone_54e06d45-3fae-4376-8679-46bdea4f79d7_340x340_crop_top@2x.png?v=1634009223)
+![Quartzo Fumê](https://yourcrystal.com.au/cdn/shop/files/SMOKEY_QUARTZ_340x340_crop_top@2x.png?v=1626356255)
 
-  
+---
 
-### GREEN AVENTURINE
+### Sodalita *(Sodalite)*
 
-  
+> **Propriedades:** Autoestima · Clareza · Sabedoria  
+> **Chakra:** Laríngeo, Terceiro Olho | **Signos:** Sagitário
 
-GOOD LUCK | ABUNDANCE | SUCCESS
+A sodalita traz sabedoria, calma e lucidez mental. Incentiva a introspecção, o pensamento racional e a intuição, além de facilitar a articulação e verbalização dos sentimentos. Promove equilíbrio emocional, ajuda a acalmar crises de pânico e fortalece a autoestima, a autoaceitação e a autoconfiança.
 
-  
+![Sodalita](https://yourcrystal.com.au/cdn/shop/files/SODALITE_340x340_crop_top@2x.png?v=1626356448)
 
-**CHAKRA:** HEART
+---
 
-  
+### Quartzo Espírito / Cacto *(Spirit Quartz)*
 
-**ZODIAC:** ARIES, AQUARIUS
+> **Propriedades:** Harmonia · Cura · Alinhamento  
+> **Chakra:** Coronário | **Signos:** Capricórnio, Libra, Virgem
 
-  
+Cristal de harmonia e alinhamento. Estimula a cooperação e a consciência de grupo, alinhando os corpos físico, mental e emocional e dissipando medos. Limpa outras pedras e potencializa suas energias em mandalas e composições de cura.
 
-The stone for good luck and prosperity, Green aventurine instills purpose, creativity and drive. The stone emanates a loving, calming energy - aligned with the heart chakra and works well for those with anxiety, trauma, and limiting beliefs. Green aventurine works with your energy field to clear out the old, and instill a new found sense of confidence in your life. Allowing joy, luck and abundance to manifest in your life
+![Quartzo Espírito](https://yourcrystal.com.au/cdn/shop/files/SPIRIT_QUARTZ_340x340_crop_top@2x.png?v=1628892331)
 
-  
-  
+---
 
-![](https://yourcrystal.com.au/cdn/shop/files/GREEEN_AVENTURINE_340x340_crop_top@2x.png?v=1626357529)
+### Quartzo Morango *(Strawberry Quartz)*
 
-  
+> **Propriedades:** Amor · Felicidade · Cura  
+> **Chakra:** Cardíaco, Coronário | **Signos:** Áries, Libra
 
-### GREEN OPAL
+O quartzo morango possui uma vibração poderosa capaz de atrair o amor universal e conexões profundas de alma. Estimula o centro cardíaco, curando dores residuais e elevando sentimentos de amor-próprio, entusiasmo e alegria independentemente do ambiente, acalmando e abrindo o coração para receber felicidade.
 
-  
+![Quartzo Morango](https://yourcrystal.com.au/cdn/shop/files/STRAWBERRY_QUARTZ_340x340_crop_top@2x.png?v=1626356819)
 
-PURPOSE | STRENGTH | ABUNDANCE
+---
 
-  
+### Pedra-do-Sol *(Sunstone)*
 
-**CHAKRA:** HEART, SOLAR PLEXUS
+> **Propriedades:** Sorte · Liberdade · Alegria  
+> **Chakra:** Sacral, Plexo Solar | **Signos:** Libra, Leão
 
-  
+Canalizando a força do sol, promove autocura e alegria. Favorece o empoderamento pessoal e a independência enquanto alivia estresse e medos. Associada à boa fortuna e a vibrações positivas, traz felicidade e limpa e energiza todos os chakras.
 
-**ZODIAC:** CANCER, SCORPIO, PISCES
+![Pedra-do-Sol](https://yourcrystal.com.au/cdn/shop/files/SUNSTONE_340x340_crop_top@2x.png?v=1626356915)
 
-  
+---
 
-The stone of change - brings clarity and purpose. Heals and strengthens relationships Improves personal courage and creativity. Enhances the flow of abundance
+### Super Sete *(Super Seven)*
 
-  
-  
+> **Propriedades:** Conhecimento · Força · Intuição  
+> **Chakra:** Todos | **Signos:** Todos
 
-![](https://yourcrystal.com.au/cdn/shop/files/green_opal_340x340_crop_top@2x.png?v=1632128662)
+Um cristal raro encontrado no Espírito Santo, no Brasil, composto por sete minerais: ametista, cacoxenita, goethita, lepidocrocita, rutilo, quartzo fumê e quartzo transparente. Extremamente poderoso, auxilia na cura de desequilíbrios físicos, mentais e espirituais.
 
-  
+![Super Sete](https://yourcrystal.com.au/cdn/shop/files/CRYSTAL_GLOSSARY_FILES_477acb55-69ea-4d8b-b0b0-1f9d0cc058fa_340x340_crop_top@2x.png?v=1668505759)
 
-### HEMATITE
+---
 
-  
+### Olho-de-Tigre *(Tiger's Eye)*
 
-GROUNDING | FOCUS | PROTECTING
+> **Propriedades:** Proteção · Sucesso · Cura  
+> **Chakra:** Sacral, Plexo Solar | **Signos:** Touro, Leão, Capricórnio
 
-  
+Forte pedra de proteção que também atrai boa sorte, fortuna e sucesso. Tem o poder de focar a mente, promovendo clareza mental e auxiliando a resolver problemas com objetividade, sem turvação emocional. Especialmente útil contra medos, ansiedade e depressão, estabiliza oscilações de humor, fortalece a força de vontade, o propósito, a coragem e a autoconfiança, e libera tensões.
 
-**CHAKRA:** ROOT, SACRAL
+![Olho-de-Tigre](https://yourcrystal.com.au/cdn/shop/files/TIGERS_EYE_340x340_crop_top@2x.png?v=1626357028)
 
-  
+---
 
-**ZODIAC:** TAURUS | VIRGO | LIBRA
+### Quartzo Turmalinado *(Tourmalinated Quartz)*
 
-  
+> **Propriedades:** Proteção · Limpeza · Harmonia  
+> **Chakra:** Terceiro Olho | **Signos:** Libra, Escorpião, Capricórnio
 
-Hematite has a strong, grounding energy that be felt by simply holding the stone. It strengthens our connection with mother earth, allowing a sense of strength and security to prevail. It instills courage, strength, endurance and vitality. A "stone for the mind", Hematite stimulates concentration and focus, enhancing memory and original thought. In addition, it's great for dissolving negativity and protecting you from absorbing the negativity of others.
+Enquanto o quartzo e a turmalina negra são ambos conhecidos por sua alta capacidade purificadora, atuam de formas complementares: a turmalina negra absorve energias negativas e protege contra influências externas, e o quartzo transparente dissolve bloqueios e amplifica a energia positiva. Unindo a amplificação do quartzo e a proteção da turmalina, esta pedra é ideal para superar até os medos mais profundos.
 
-  
-  
+![Quartzo Turmalinado](https://yourcrystal.com.au/cdn/shop/files/TOURMALINATED_QUARTZ_340x340_crop_top@2x.png?v=1626357143)
 
-![](https://yourcrystal.com.au/cdn/shop/files/Hematite_340x340_crop_top@2x.png?v=1628891052)
+---
 
-  
+### Turquesa *(Turquoise)*
 
-### HONEY CALCITE
+> **Propriedades:** Força · Purificação · Comunicação  
+> **Chakra:** Laríngeo, Coronário | **Signos:** Peixes, Sagitário, Escorpião
 
-  
-
-PERSONAL POWER| PURIFICATION | INTUITION
-
-  
-
-**CHAKRA:** SACRAL, THIRD EYE
-
-  
-
-**ZODIAC:** CANCER
-
-  
-
-Honey Calcite is a powerful energy cleanser, it will cleanse the atmosphere of all negativity and heighten your physical energy (motivation levels) It boosts your memory, ability to learn and provides mental clarity. Honey Calcite also amplifies the energies of other stones placed in its vicinity. If you place a piece in a room, it will cleanse the atmosphere of all negativity and heighten your physical energy. Holding Honey Calcite as you relax and breathe deeply can aid you in making stronger connections with your own psychic abilities as well as with other-worldly beings and messengers."
-
-  
-  
-
-![](https://yourcrystal.com.au/cdn/shop/files/HONEY_CALCITE_340x340_crop_top@2x.png?v=1626352259)
-
-  
-
-### HOWLITE
-
-  
-
-EXPRESSION | MINDFULNESS | CALM
-
-  
-
-**CHAKRA:** CROWN
-
-  
-
-**ZODIAC:** GEMINI
-
-  
-
-Howlite strengthens memory and stimulates desire for knowledge. It's used for creativity, calm and communication as it facilitates greater awareness. Howlite is a calming stone and teaches patience and helps to eliminate rage, and other heightened emotions. Great for sleep, and reducing anxiety and stress. 
-
-  
-  
-
-![](https://yourcrystal.com.au/cdn/shop/files/HOWLITE_ba4a18f3-93bd-466d-8545-c677456b38ed_340x340_crop_top@2x.png?v=1632125987)
-
-  
-
-### IOLITE
-
-  
-
-MOTIVATION | DETOX | CREATIVITY
-
-  
-
-**CHAKRA:** THIRD EYE
-
-  
-
-**ZODIAC:** LIBRA, TAURUS, SAGITTARIUS
-
-  
-
-Iolite is a great stone for those lacking creativity and motivation, it aids with confusion, disorganization and distraction. It heals and aligns the body, mind and spirit, whilst providing direction, guidance and hope. Iolite promotes feelings of peace and tranquility, by assisting you to detox and cut unhealthy behaviours from your life. It's an amazing stone for reclaiming your destiny and becoming the master of your own making.
-
-  
-  
-
-![](https://yourcrystal.com.au/cdn/shop/files/IOLITE_340x340_crop_top@2x.png?v=1626352501)
-
-  
-
-### KAMBABA JASPER
-
-  
-
-PEACE | BALANCE | PURIFICATION 
-
-  
-
-**CHAKRA:** HEART
-
-  
-
-**ZODIAC:** CAPRICORN, CANCER, SCORPIO
-
-  
-
-Kambaba Jasper is a stone of peace and tranquility, imbued with the nourishing green energy of nature. It's dark mystic circles and deep green swirls comforts and protects, calms and relaxes, soothing troubled minds and restoring balance to the body and spirit. Its cleansing effect eliminates negative energy and stabilizes the aura and its slow steady frequency expands our ability to focus, releasing any negative thoughts and feelings.
-
-  
-  
-
-![](https://yourcrystal.com.au/cdn/shop/files/KAMBABA_JASPER_340x340_crop_top@2x.png?v=1626352720)
-
-  
-
-### KUNZITE
-
-  
-
-LOVE | DIVINE FEMININE | JOY 
-
-  
-
-**CHAKRA:** HEART, CROWN
-
-  
-
-**ZODIAC:** ARIES, LEO, LIBRA, SCORPIO
-
-  
-
-Sometimes called the women's stone - Kunzite bring joy, love and a deep heartfelt connection. It will bring you inner peace and give you a high capacity to achieve wisdom and understanding. While wearing kunzite, it is thought you are better able to allow, receive and reciprocate love. Kunzite is also believed to help heal heartache and calm nerves, and activates the Heart Chakra and aligns the Crown Chakra.
-
-  
-  
-
-![](https://yourcrystal.com.au/cdn/shop/files/KUNZITE_340x340_crop_top@2x.png?v=1626352804)
-
-  
-
-### KYANITE
-
-  
-
-TRANQUILITY | HIGH VIBRATION | ATTUNEMENT 
-
-  
-
-**CHAKRA:** ALL
-
-  
-
-**ZODIAC:** ALL
-
-  
-
-Kyanite is a power stone - it does not retain any negative vibrations or energy and therefore never requires clearing.  Because it's such a high vibration stone, it is excellent for meditation and attunement. It provides balance of yin-yang energy and dispels blockages across all chakras  -  moving energy gently through the physical body. Kyanite has a calming effect on the whole being, bringing tranquility and driving away anger, frustration, confusion and stress. Kyanite encourages psychic abilities and provides a stimulating energy, encouraging perseverance in and support of activities and situations which would normally reduce one’s strength. It can help when connecting to your spirit guides.  Kyanite induces dream recall and can promote healing dreams.
-
-  
-  
-
-![](https://yourcrystal.com.au/cdn/shop/files/KYANITE_6330bf21-6f97-4865-995a-27ace2bf88f4_340x340_crop_top@2x.png?v=1632126092)
-
-  
-
-### LABRADORITE
-
-  
-
-PROTECTION | TRANSFORMATION |INTUITION
-
-  
-
-**CHAKRA:** HEART , THIRD EYE
-
-  
-
-**ZODIAC:** SCORPIO, LEO, SAGITTARIUS 
-
-  
-
-LABRADORITE purifies your energy and deflects unwanted energies, insecurities and fears. A powerful assistant for change, sharpening the instincts and raising your consciousness. LABRADORITE also supports psychic abilities.
-
-  
-  
-
-![](https://yourcrystal.com.au/cdn/shop/files/LABRADORITE_340x340_crop_top@2x.png?v=1626353020)
-
-  
-
-### LAPIS LAZULI
-
-  
-
-POWER | KNOWLEDGE | PROTECTION
-
-  
-
-**CHAKRA:** THROAT, CROWN THIRD EYE
-
-  
-
-**ZODIAC:** VIRGO, TAURUS
-
-  
-
-Universally known for power, wisdom and truth Encourages self-awareness, self-expression and inner truth Stimulates clarity and creativity whilst guarding against psychic attack. Supports you with a renewed feeling of strength, clarity and self confidence
-
-  
-  
-
-![](https://yourcrystal.com.au/cdn/shop/files/LAPIS_LAZULI_340x340_crop_top@2x.png?v=1626353216)
-
-  
-
-### LEPIDOLITE
-
-  
-
-TRANSITION | AWARENESS | MEDITATION
-
-  
-
-**CHAKRA:** THIRD EYE, CROWN
-
-  
-
-**ZODIAC:** LIBRA
-
-  
-
-The stone of transition, LEPIDOLITE assists in the release and reorganisation of old behavioural patterns, gently inducing change. It brings deep emotional healing, soothing and reducing stress and depression
-
-  
-  
-
-![](https://yourcrystal.com.au/cdn/shop/files/LEPIDOLITE_340x340_crop_top@2x.png?v=1626353598)
-
-  
-
-### MALACHITE
-
-  
-
-TRANSFORMATION | CONFIDENCE | PROTECTION
-
-  
-
-**CHAKRA:** HEART, THROAT
-
-  
-
-**ZODIAC:** LIBRA, SCORPIO, CAPRICORN
-
-  
-
-The stone for transformation - it encourages change. Absorbs negative energies from the body and atmosphere. Opens the heart to unconditional love and encourages risk taking, leadership and change.
-
-  
-  
-
-![](https://yourcrystal.com.au/cdn/shop/files/MALACHITE_340x340_crop_top@2x.png?v=1626353691)
-
-  
-
-### MALACHOLLA
-
-  
-
-TRANSFORMATION |HEALING | EMPOWERMENT
-
-  
-
-**CHAKRA:** HEART, THROAT
-
-  
-
-**ZODIAC:** TAURUS, SCORPIO
-
-  
-
-A powerful combination of Malachite and Chrysocolla, this stone brings deep healing, emotional balance and personal growth. While Malachite is a stone that encourages transformation and shows us what is blocking our growth, Chrysocolla brings a soft healing energy that can enable us to accept this change. It brings a stabilizing energy, soothing emotions and increasing our capacity to love and empathize. This stone encourages breaking unwanted patterns, releasing toxic emotions and encouraging the free expression of feelings while bringing acceptance, empowerment and healing any emotional scars.
-
-  
-  
-
-![](https://yourcrystal.com.au/cdn/shop/files/MALACHOLLA_340x340_crop_top@2x.png?v=1632128923)
-
-  
-
-### MANGANO CALCITE
-
-  
-
-FORGIVENESS | INNER PEACE | JOY
-
-  
-
-**CHAKRA:** CROWN, HEART
-
-  
-
-**ZODIAC:** TAURUS, LIBRA, CANCER
-
-  
-
-Pink Calcite also known as MANGANO calcite promotes inner peace, compassion, pure love, joy, and self-healing vibrations. Great for healing unresolved matters of the heart, it supports empaths providing self-comfort and joy. Also a great crystal for forgiveness of self and others.
-
-  
-  
-
-![](https://yourcrystal.com.au/cdn/shop/files/MANGANO_CALCITE_340x340_crop_top@2x.png?v=1632124636)
-
-  
-
-### MILKY QUARTZ
-
-  
-
-HARMONY | PROTECTION | VITALITY
-
-  
-
-**CHAKRA:** CROWN
-
-  
-
-**ZODIAC:** ALL
-
-  
-
-This crystal helps eliminate negative energies and physical fatigue, giving us more vitality. Milky quartz gives us the support we need to learn life's lessons and to free ourselves from excessive responsibility and limitations. Milky Quartz enhances touch and cooperation as well as helping us think before we speak.
-
-  
-  
-
-![](https://yourcrystal.com.au/cdn/shop/files/MILKY_QUARTZ_d099ea08-18ca-4e0b-bbd8-0a0869e2bdc2_340x340_crop_top@2x.png?v=1632126989)
-
-  
-
-### MOONSTONE
-
-  
-
-STRENGTH | FORTUNE | BALANCE
-
-  
-
-**CHAKRA:** THIRD EYE, SOLAR PLEXUS
-
-  
-
-**ZODIAC:** LIBRA,  PISCES, CANCER
-
-  
-
-Moonstone is high vibration crystal, great for alignment and balance, plugging you into a higher frequency. A stone for “new beginnings”, moonstones supports your inner growth and strength, while soothing emotions and stress.  Moonstone enhances intuition, promotes inspiration, success and good fortune in love and business. Linked to the energy of the moon and cycles, this is a powerful crystal is great anyone wanting to connect with their feminine or goddess energy. 
-
-  
-  
-
-![](https://yourcrystal.com.au/cdn/shop/files/MOONSTONE_340x340_crop_top@2x.png?v=1626353997)
-
-  
-
-### MOSS AGATE
-
-  
-
-TRANQUILITY | WEALTH | SELF-ESTEEM
-
-  
-
-**CHAKRA:** HEART
-
-  
-
-**ZODIAC:** VIRGO
-
-  
-
-Moss Agate is a stone with deep meaning and purpose. Sometimes called the stone for new beginnings, it refreshes the soul and inspires new ideals after periods of stagnation.  Moss Agate reduces sensitivity to weather and environmental pollutants.  It attracts abundance in wealth and improves self-esteem, allowing you the ability to get along with others. Moss Agate promotes self-expression and communication.  Balances the emotions, releasing fear and stress.
-
-  
-  
-
-![](https://yourcrystal.com.au/cdn/shop/files/MOSS_AGATE_4bad5a7a-20e5-40e7-b0ed-07fbb1635c45_340x340_crop_top@2x.png?v=1626354217)
-
-  
-
-### OCEAN JASPER
-
-  
-
-SELF CARE | NURTURE | OPTIMISM
-
-  
-
-**CHAKRA:** HEART & SOLAR PLEXUS
-
-  
-
-**ZODIAC:** CAPRICORN, AQUARIUS, SAGITTARIUS
-
-  
-
-Have you been pushing your needs aside? Neglecting to take care of yourself? Feeling like you haven’t had a moment to yourself all day? Make yourself a priority with Ocean Jasper. Gentle, nurturing energy will help you slow down and take some time for yourself throughout the day. Supports joy, optimism and positive vibes
-
-  
-  
-
-![](https://yourcrystal.com.au/cdn/shop/files/Ocean_Jasper_340x340_crop_top@2x.png?v=1628891271)
-
-  
-
-### ORANGE CALCITE
-
-  
-
-CLEANSING | CREATIVITY | POSITIVITY
-
-  
-
-**CHAKRA:** ROOT, SACRAL
-
-  
-
-**ZODIAC:** CANCER, LEO
-
-  
-
-Orange Calcite helps integrate the spiritual realm with the physical body, enhances creativity, and is helpful when working with emotional issues. Use Orange Calcite to energize and cleanse the lower chakras. Orange Calcite works especially well with the Sacral Chakra to enhance the will and remove depression.
-
-  
-  
-
-![](https://yourcrystal.com.au/cdn/shop/files/CRYSTAL_GLOSSARY_FILES_5_340x340_crop_top@2x.png?v=1632124347)
-
-  
-
-### PINK AMETHYST
-
-  
-
-ACCEPTANCE | HEALING | ROMANCE
-
-  
-
-**CHAKRA:** HEART, THIRD EYE, CROWN
-
-  
-
-**ZODIAC:** PISCES, VIRGO, AQUARIUS
-
-  
-
-Pink Amethyst is a gentle comforting crystal that opens the heart chakra and allows acceptance of self and others without judgement. It encourages love and emotional healing. In addition having pink amethyst nearby can provide that deep sense of "knowing" and enhance your intuition. Amethysts are a form of quartz, and as such, possess cleansing characteristics and their ability to absorb negative energies, cleanse and release them back out into the surrounding space."
-
-  
-  
-
-![](https://yourcrystal.com.au/cdn/shop/files/PINK_AMETHYST_340x340_crop_top@2x.png?v=1633822602)
-
-  
-
-### PINK ARAGONITE
-
-  
-
-GROUNDING | PATIENCE | PEACE
-
-  
-
-**CHAKRA:** ROOT, HEART CHAKRA
-
-  
-
-**ZODIAC:** CAPRICORN, AQUARIUS, SAGITTARIUS
-
-  
-
-With its ability to center and ground physical energies, pink aragonite is useful in times of stress. Aragonite teaches patience and acceptance and is connected to the heart center. It combats over-sensitivity. This stone is good for people who push themselves too hard. Healers benefit from holding aragonite before beginning a session, to allow their energies to centre and to shut out daily concerns.
-
-  
-  
-
-![](https://yourcrystal.com.au/cdn/shop/files/PINK_ARAGONITE_c08e3317-2a6b-46a6-9f3e-0f9c004cc373_340x340_crop_top@2x.png?v=1632124779)
-
-  
-
-### PINK OPAL
-
-  
-
-RENEWAL | SENSITIVITY | ACCEPTANCE
-
-  
-
-**CHAKRA:** HEART
-
-  
-
-**ZODIAC:** CANCER, PISCES, SCORPIO
-
-  
-
-A great healer for emotional wounds, Pink Opal nurtures the soul and fills your energetic field with hope, peace and tranquility. It helps to release past traumas and excessive worry, anxiety and fear - allowing you to be more centered, calm and stable.
-
-  
-  
-
-![](https://yourcrystal.com.au/cdn/shop/files/PINK_OPAL_340x340_crop_top@2x.png?v=1626354821)
-
-  
-
-### PINK TOURMALINE
-
-  
-
-LOVE | HEALING | INNER PEACE 
-
-  
-
-**CHAKRA:** HEART
-
-  
-
-**ZODIAC:** LIBRA
-
-  
-
-Pink Tourmaline, also known as Rubellite brings the energy rays of determination, commitment, and caring. The perfect stone for anxiety, its soothing colour calms feelings of anger, pain or resentment, and can aid efforts to meditate and reflect. Pink is the color of new love, new romance and new relationships and this stone aids not only with love of others, but also self-love, self-care and compassion.
-
-  
-  
-
-![](https://yourcrystal.com.au/cdn/shop/files/CRYSTAL_GLOSSARY_FILES_1_8f04f099-79c0-46ba-9470-135f8b559320_340x340_crop_top@2x.png?v=1631829667)
-
-  
-
-### PISTACHIO CALCITE
-
-  
-
-COMPASSION | CHANGE | HEART
-
-  
-
-**CHAKRA:** HEART & SOLAR PLEXUS
-
-  
-
-**ZODIAC:** TAURUS, PISCES
-
-  
-
-The soft-green vibration of green (PISTACHIO) calcite opens your heart chakra to receive love from the spiritual realm. This stone encourages tolerance, compassion, and understanding. Emotionally this stone helps your mind process any major changes you might be going through, including a complete overhaul of your life as well as traumatic, seemingly unwanted changes.
-
-  
-  
-
-![](https://yourcrystal.com.au/cdn/shop/files/CRYSTAL_GLOSSARY_FILES_340x340_crop_top@2x.png?v=1628891893)
-
-  
-
-### PREHNITE
-
-  
-
-TRUTH | HEALING | LOVE 
-
-  
-
-**CHAKRA:** HEART CHAKRA, SOLAR PLEXUS
-
-  
-
-**ZODIAC:** LIBRA, ARIES
-
-  
-
-The stone of unconditional love and perfect for healing, Prehnite calms and protects your environment bringing you into harmony with nature. Perfect for mindfulness, meditation and connecting with your higher self, this stone can aid with intuition and visualisation.
-
-  
-  
-
-![](https://yourcrystal.com.au/cdn/shop/files/PREHNITE_340x340_crop_top@2x.png?v=1626355135)
-
-  
-
-### PYRITE
-
-  
-
-CONFIDENCE | ABUNDANCE | GROUNDING
-
-  
-
-**CHAKRA:** ALL
-
-  
-
-**ZODIAC:** ALL
-
-  
-
-Pyrite is the stone on action, vitality and will. It inspires confidence and persistence drawing energy from the earth and acting as a protector. A powerful crystal for manifestation, particularly with wealth, abundance and prosperity.
-
-  
-  
-
-![](https://yourcrystal.com.au/cdn/shop/files/PYRITE_340x340_crop_top@2x.png?v=1626355218)
-
-  
-
-### RAINBOW FLUORITE
-
-  
-
-TRUTH |CONSCIOUSNESS | INTELLECT
-
-  
-
-**CHAKRA:** HEART, THROAT, THIRD EYE
-
-  
-
-**ZODIAC:** CAPRICORN, PISCES
-
-  
-
-Fluorite cleanses and stabilises the aura.  It absorbs and neutralises negative energy and stress.  An excellent learning aid, Fluorite increases our powers of concentration, self-confidence and helps us in decision-making.  It encourages positivity, balances the energies, and improves balance and coordination, both physically and mentally.
-
-  
-  
-
-![](https://yourcrystal.com.au/cdn/shop/files/RAINBOW_FLUORITE_340x340_crop_top@2x.png?v=1628892011)
-
-  
-
-### RED JASPER
-
-  
-
-STRENGTH | POWER | CONFIDENCE
-
-  
-
-**CHAKRA:** SACRAL, ROOT, SOLAR PLEXUS
-
-  
-
-**ZODIAC:** SAGITTARIUS, CAPRICORN, LIBRA
-
-  
-
-Red Jasper is a stone of empowerment, bringing strength, stamina and courage. A very nurturing crystal to lean on in times of doubt, worry and emotional upheaval. Red Jasper will keep you grounded and confident and full of energy to make it through those difficult periods.
-
-  
-  
-
-![](https://yourcrystal.com.au/cdn/shop/files/RED_JASPER_340x340_crop_top@2x.png?v=1628892201)
-
-  
-
-### RED TIGERS EYE
-
-  
-
-PROTECTION | SUCCESS | HEALING
-
-  
-
-**CHAKRA:** BASE
-
-  
-
-**ZODIAC:** CAPRICORN, PISCES
-
-  
-
-Red Tiger’s Eye is a highly stimulating stone that promotes energy, drive, and motivation. Known for boosting self-esteem and confidence, it helps build courage while stabilising and grounding your energy field. This crystal is ideal for those seeking balance between passion and practicality, offering both empowerment and emotional steadiness.
-
-  
-  
-
-![](https://yourcrystal.com.au/cdn/shop/files/RED_TIGERS_EYE_340x340_crop_top@2x.jpg?v=1633823084)
-
-  
-
-### RHODOCHROSITE
-
-  
-
-PASSION | HEALING | EMPATHY
-
-  
-
-**CHAKRA:** HEART, ROOT
-
-  
-
-**ZODIAC:** LEO, SCORPIO
-
-  
-
-Rhodochrosite is a confidence boosting stone which brings a sense of balance to your life. It allows you to face issues from the past and nurtures your inner child. A beautiful stone for attracting love and romance.
-
-  
-  
-
-![](https://yourcrystal.com.au/cdn/shop/files/RHODOCHROSITE_20934e6f-e2b2-4af9-985a-5fa670aa641d_340x340_crop_top@2x.png?v=1631829758)
-
-  
-
-### RHODONITE
-
-  
-
-HEALING | FORGIVENESS | LOVE
-
-  
-
-**CHAKRA:** HEART
-
-  
-
-**ZODIAC:** TAURUS
-
-  
-
-Known as the ultimate rescue stone, Rhodonite carries a powerful healing vibration that helps with relationship problems. This stone brings emotional healing, forgiveness, compassion, and helps release fears - allowing you to realise your unique gifts. In addition, this is a love stone - aligned with the heart chakra and grounding you with love and peace.
-
-  
-  
-
-![](https://yourcrystal.com.au/cdn/shop/files/RHODONITE_340x340_crop_top@2x.png?v=1626355619)
-
-  
-
-### ROSE QUARTZ
-
-  
-
-LOVE | HARMONY | CALM
-
-  
-
-**CHAKRA:** HEART
-
-  
-
-**ZODIAC:** LIBRA, TAURUS
-
-  
-
-The universal love stone. Rose Quartz opens the heart and restores peace and harmony in all types of relationships. It brings gentleness, forgiveness and tolerance, whilst clearing out anger, jealousy, resentment.  Rose quartz assists with healing the heart by clearing out any old or negative emotions.
-
-  
-  
-
-![](https://yourcrystal.com.au/cdn/shop/files/CRYSTAL_GLOSSARY_FILES_2_76e32662-37f6-4702-bfc5-d4e708d34ec0_340x340_crop_top@2x.png?v=1631829840)
-
-  
-
-### RUBY FUCHSITE
-
-  
-
-AWARENESS | TRANSFORMATION | STRENGTH
-
-  
-
-**CHAKRA:** ROOT CHAKRA | THIRD EYE CHAKRA | HEART CHAKRA
-
-  
-
-**ZODIAC:** CANCER, LEO, SCORPIO,
-
-  
-
-The energies of Ruby and Fuchsite combined create a nourishing vibration that supports the healing of the emotional body. It soothes suffering, distress and calms the mind. The ruby brings strength, happiness, courage and confidence to make changes to your life. Combined together they enhance our ability to connect and communicate with the spirit realm and receive messages through mediation.
-
-  
-  
-
-![](https://yourcrystal.com.au/cdn/shop/files/RUBY_FUCHSITE_340x340_crop_top@2x.png?v=1631829970)
-
-  
-
-### RUBY KYANITE
-
-  
-
-DREAMS | MANIFESTATION | CONNECTION
-
-  
-
-**CHAKRA:** THIRD EYE, CROWN
-
-  
-
-**ZODIAC:** ARIES, LEO, LIBRA, SCORPIO
-
-  
-
-Ruby Kyanite offers protection and strength for shamanic journeying and astral travel, helping us to maintain a solid connection to our physical body and giving power for our spirit to range far and wide. It enhances lucid dreaming and dream recall, and also amplifies manifestation.
-
-  
-  
-
-![](https://yourcrystal.com.au/cdn/shop/files/RUBY_KYANITE_cb762c52-6e6a-4bf9-8ee1-1e7975c54b9b_340x340_crop_top@2x.png?v=1632127576)
-
-  
-
-### RUBY ZOISITE
-
-  
-
-CONNECTION | JOY | ABUNDANCE
-
-  
-
-**CHAKRA:** HEART, ROOT, CROWN
-
-  
-
-**ZODIAC:** AQUARIUS, ARIES
-
-  
-
-Ruby Zoisite offers the energy of happiness, appreciation, abundance, vitality and growth. It stimulates the heart and opens one up to divine love. It assists with grief, anger, despair and defeat.
-
-  
-  
-
-![](https://yourcrystal.com.au/cdn/shop/files/RUBY_ZOISITE_34073517-c900-4d68-a7dc-16f92c060f00_340x340_crop_top@2x.png?v=1631830207)
-
-  
-
-### SELENITE
-
-  
-
-PURIFY | RECHARGE | RELEASE
-
-  
-
-**CHAKRA:** CROWN CHAKRA, THIRD EYE CHAKRA 
-
-  
-
-**ZODIAC:** GEMINI, CANCER
-
-  
-
-The pure vibration of Selenite provides mental clarity and a greater understanding of life. It instills peaceful, calming energy and creates an aura of protection from outside influences. Selenite helps us to reach new states of consciousness, to rapidly shift emotional blocks or negative energies and purify our energetic field. Selenite will also cleanse other crystals, clear unwanted energies and permeate its surroundings with pure clean white light energy. Simply place crystal on or next to your Selenite for approximately 15 minutes for a quick cleanse. If the crystal, item or mineral is left on the selenite for a longer period of time, the energy of the mineral will transmit through the selenite and permeate the room.
-
-  
-  
-
-![](https://yourcrystal.com.au/cdn/shop/files/SELENITE_ddf63f40-c3ca-4c45-ad5d-9cdf6f8a4d2b_340x340_crop_top@2x.png?v=1631833040)
-
-  
-
-### SMOKEY CITRINE
-
-  
-
-ABUNDANCE | MANIFESTING | POSITIVE GROWTH
-
-  
-
-**CHAKRA:** ROOT CHAKRA
-
-  
-
-**ZODIAC:** SCORPIO, LEO, LIBRA
-
-  
-
-The crystal of abundance and positive changes. Removes fears and old limiting beliefs and blockages. Anchors life force energy (kundalini) Powerful for manifesting. Transforms negativity into positive change.
-
-  
-  
-
-![](https://yourcrystal.com.au/cdn/shop/files/SMOKEY_CITRINE_340x340_crop_top@2x.png?v=1632129507)
-
-  
-
-### SMOKEY QUARTZ
-
-  
-
-GROUNDING | PROTECTIVE | BALANCING
-
-  
-
-**CHAKRA:** ROOT CHAKRA, SOLAR PLEXUS
-
-  
-
-**ZODIAC:** SCORPIO, SAGITTARIUS, CAPRICORN
-
-  
-
-A protective stone, alleviating grief, despair, depression and other negative emotions. Great for releasing stress, tension and anxiety whilst lifting the mood and balancing sexual energies. Helps with grounding and calmness if you're feeling a little lost, worried or uncertain about a situation
-
-  
-  
-
-![](https://yourcrystal.com.au/cdn/shop/files/SMOKEY_QUARTZ_340x340_crop_top@2x.png?v=1626356255)
-
-  
-
-### SODALITE
-
-  
-
-SELF ESTEEM | CLARITY | WISDOM
-
-  
-
-**CHAKRA:** THROAT, THIRD EYE
-
-  
-
-**ZODIAC:** SAGITTARIUS
-
-  
-
-Sodalite brings wisdom, calmness and clarity to the mind. It encourages introspection, rational thought, and intuition, along with the ability to articulate and verbalise feelings more effectively. SODALITE can enhance emotional balance and calm panic attacks. It enhances self-esteem, self-acceptance and self-trust.
-
-  
-  
-
-![](https://yourcrystal.com.au/cdn/shop/files/SODALITE_340x340_crop_top@2x.png?v=1626356448)
-
-  
-
-### SPIRIT QUARTZ
-
-  
-
-HARMONY | HEALING | ALIGNMENT
-
-  
-
-**CHAKRA:** CROWN
-
-  
-
-**ZODIAC:** CAPRICORN, LIBRA, VIRGO
-
-  
-
-Spirit Quartz is a crystal of Harmony and Alignment. It enhances cooperation, and group consciousness - aligning physical, mental and emotional bodies, taking away fears. Spirit Quartz cleanses other stones and enhances their energy in healing layouts.
-
-  
-  
-
-![](https://yourcrystal.com.au/cdn/shop/files/SPIRIT_QUARTZ_340x340_crop_top@2x.png?v=1628892331)
-
-  
-
-### STRAWBERRY QUARTZ
-
-  
-
-LOVE | HAPPINESS | HEALING
-
-  
-
-**CHAKRA:** HEART CHAKRA, CROWN
-
-  
-
-**ZODIAC:** ARIES, LIBRA
-
-  
-
-Strawberry Quartz  embodies a powerful vibration with the ability to flow universal love into your life and attracting your soul mate.  Strawberry Quartz stimulates the heart energy center, healing any residual pain or hurt and raising feelings of self-love, euphoria and joy, no matter what your environment. It can help harness the loving energy of the universe, making you feel calm and opening your heart to receive loving energy and happiness. 
-
-  
-  
-
-![](https://yourcrystal.com.au/cdn/shop/files/STRAWBERRY_QUARTZ_340x340_crop_top@2x.png?v=1626356819)
-
-  
-
-### SUNSTONE
-
-  
-
-LUCK | FREEDOM | JOY
-
-  
-
-**CHAKRA:** SACRAL CHAKRA, SOLAR PLEXUS
-
-  
-
-**ZODIAC:** LIBRA, LEO
-
-  
-
-"Harnessing the power of the sun it promotes self-healing and joy Facilitates self-empowerment and independence whilst alleviating stress and fears Linked to good fortune and positive vibrations - bringing happiness Clears and energizes all the chakras"
-
-  
-  
-
-![](https://yourcrystal.com.au/cdn/shop/files/SUNSTONE_340x340_crop_top@2x.png?v=1626356915)
-
-  
-
-### SUPER SEVEN
-
-  
-
-KNOWLEDGE | STRENGTH | INTUITION
-
-  
-
-**CHAKRA:** ALL
-
-  
-
-**ZODIAC:** ALL
-
-  
-
-A rare crystal found in the Holy Spirit of Brazil made from Amethyst, Cacoxenite, Goethite, Lepidocrocite, Rutile, Smoky Quartz, and Quartz. It is extremely powerful that aids in the healing of physical, mental, and spiritual ailments. 
-
-  
-  
-
-![](https://yourcrystal.com.au/cdn/shop/files/CRYSTAL_GLOSSARY_FILES_477acb55-69ea-4d8b-b0b0-1f9d0cc058fa_340x340_crop_top@2x.png?v=1668505759)
-
-  
-
-### TIGERS EYE
-
-  
-
-PROTECTION | SUCCESS | HEALING
-
-  
-
-**CHAKRA:** SACRAL CHAKRA, SOLAR PLEXUS
-
-  
-
-**ZODIAC:** TAURUS, LEO, CAPRICORN 
-
-  
-
-A strong stone for protection, Tiger's Eye may also bring good luck fortune and success to the wearer.  It has the power to focus the mind, promoting mental clarity, assisting us to resolve problems objectively and unclouded by emotions.  Particularly useful for fears, anxiety and depression, Tigers Eye stabilises mood swings, encourages willpower, purpose, courage and self-confidence, and releases tension.
-
-  
-  
-
-![](https://yourcrystal.com.au/cdn/shop/files/TIGERS_EYE_340x340_crop_top@2x.png?v=1626357028)
-
-  
-
-### TOURMALINATED QUARTZ
-
-  
-
-PROTECTION | CLEANSING | HARMONY
-
-  
-
-**CHAKRA:** THIRD EYE
-
-  
-
-**ZODIAC:** LIBRA, SCORPIO, CAPRICORN
-
-  
-
-Whilst quartz and black tourmaline are both recommended for their highly cleansing energy, the ways in which they work are quite different. Black tourmaline works to absorb negative energy and protect you from external influences, while clear quartz purifies your energy blocks and enhances your positive power. With the added energy amplification of quartz, and the protection of tourmaline, this stone is perfect for conquering even your deepest fears.
-
-  
-  
-
-![](https://yourcrystal.com.au/cdn/shop/files/TOURMALINATED_QUARTZ_340x340_crop_top@2x.png?v=1626357143)
-
-  
-
-### TURQUOISE
-
-  
-
-STRENGTH | PURIFICATION  | COMMUNICATION
-
-  
-
-**CHAKRA:** THROAT, CROWN
-
-  
-
-**ZODIAC:** PISCES, SAGITTARIUS, SCORPIO 
-
-  
-
-Turquoise is a master energy healing and purification stone. It connects your mind with the infinite possibilities, creative solutions and stimulates honest, open communication. Great for brain fog, exhaustion, depression or anxiety - it is the most efficient healing stone balancing moods, emotions and restoring vitality.
+A turquesa é uma pedra mestra de cura energética e purificação. Conecta a mente a possibilidades infinitas e soluções criativas e estimula uma comunicação honesta e aberta. Excelente contra névoa mental, exaustão, depressão ou ansiedade, equilibra o humor e as emoções e restaura a vitalidade.
 
 ---
