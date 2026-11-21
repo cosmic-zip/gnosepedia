@@ -1,0 +1,7 @@
+## Mulheres importantes na história
+
+
+| ![[Pasted image 20261119230915.png]] | <br>**Harriet Elizabeth Beecher Stowe**<br>Stowe escreveu 30 livros, incluindo romances, três memórias de viagens e coleções de artigos e cartas. Ela foi influente tanto por seus escritos quanto por suas posições e debates públicos sobre as questões sociais da época. O mais famoso é o romance Uncle Tom's Cabin ("A Cabana do Pai Tomás"), alcançou uma audiência de milhões como romance e peça, e tornou-se influente nos Estados Unidos e na Grã-Bretanha, energizando forças antiescravistas no norte estadunidense, enquanto provocava raiva generalizada no sul. Quando encontrou o presidente Abraham Lincoln, ele disse que foi ela que, com seu livro, causou a Guerra Civil. |
+| ------------------------------------ | ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
+
+---
