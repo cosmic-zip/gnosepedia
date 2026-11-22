@@ -824,7 +824,7 @@ body > footer {
 .uc {
     max-width: 1024px;
     margin: auto;
-    font-size: var(--uc-size, 100%);
+    font-size: var(--uc-size, 18px);
 }
 
 .uc h1 {
